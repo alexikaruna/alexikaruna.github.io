@@ -6,17 +6,17 @@ Mali, born physically male feels feminine inside but is insecure with the depth 
 
 Cat is a successful Thai entrepreneur, educated in Japan with impeccable social polish and beauty, still seeking an elusive happiness that her heart is holding out for despite cultural and family pressures. Grappling with the loss of her lifelong best friend due to her apparent attraction to Cat, and an always lukewarm relationship with men, her current boyfriend no exception, she feels like she's reached the limit of being able to understand herself and move her life forward.
 
-When Cat and Mali meet a friendship develops allowing each a place of deep expression of what they've been unable to communicate with anyone else - in friendship and eventually intimacy. To Mali, Cat is the perfect woman who could get 'him' over the whole 'fem thing'. And to Cat, Mali is the perfect man, a 'rockstar', the answer to what has been missing in her relationships. To each, the other is the answer. But in the way expected?
+When Cat and Mali meet, a friendship develops allowing each a place of deep expression of what they've been unable to communicate with anyone else - in friendship and eventually intimacy. To Mali, Cat is the perfect woman who could get 'him' over the whole 'fem thing'. And to Cat, Mali is the perfect man, a 'rockstar', the answer to what has been missing in her relationships. To each, the other seems to be the answer. But in the way expected?
+
+
+
 
 
 ## Chapters
 
-_FFS is being published serially on this site starting December 2019. New chapters will be added weekly until complete!_
-
 [Dedication](#dedication)
 
 **ANTECEDENTS**  
-[Ripples](#ripples)  
 [One Day](#one day)
 
 **BEFORE**  
@@ -32,8 +32,8 @@ _FFS is being published serially on this site starting December 2019. New chapte
 [Thai Reality](#thai reality)  
 [The Pink Button Down Shirt](#the pink button down shirt)  
 [Fuck. Fuck? Fuck!](#fuck fuck fuck)  
- [Frustrated Shaman](#the angry shaman)  
-["Home"](#home)  
+[Frustrated Shaman](#the angry shaman)  
+[Home](#home)  
 [Re Koona](#re koona)  
 [The Night Market](#the night market)  
 [Recollections](#recollections)  
@@ -42,7 +42,7 @@ _FFS is being published serially on this site starting December 2019. New chapte
 [Open Soul](#open soul)  
 [The Creepy Sperm Bank](#the creepy sperm bank)  
 [All Living Things](#all living things)  
-[Koona's Klong House](#koonas klong house)  
+[The Klong House](#the klong house)  
 [100 Years](#100 years)  
 [Japanese](#japanese)  
 [Kali](#kali)  
@@ -51,7 +51,7 @@ _FFS is being published serially on this site starting December 2019. New chapte
 [Sarai](#sarai)
 
 **CAT**  
-[Un American](#un american)  
+[Un-American](#un-american)  
 [Chatuchak Park](#chatuchak park)  
 [Away](#away)  
 [Chiang Rai](#chiang rai)  
@@ -97,59 +97,80 @@ _FFS is being published serially on this site starting December 2019. New chapte
 **HOPE**  
 [Hello World](#hello world)  
 [Hating on the Road to Bangkok](#hating on the road to bangkok)  
-[Dress Shopping](#dress shopping)  
+[Dress Shopping](#dress shopping)
+[Dress Wearing](#Dress Wearing)
+[Anastasia](#Anastasia)
+
+**AUTUMN**
+[The Pumpkin Head](#the pumpkin head)
+[Snoutmark](#snoutmark)
+[Streetlight Silhouette](#Streetlight Silhouette)
+[Going Crazy in a Park](#Going Crazy in a Park)
+[Secrets](#secrets)
+[Out](#out)
+[Thai Pancakes and Watermelon](#Thai Pancakes and Watermelon)
+[Escaping the Ten Minutes](#escaping the ten minutes)
+[Searching for Godot](#searching for godot)
+[Reflections from a Motorcycle](#reflections from a motorcycle)
+[Farang Kon Katoey](#farang kon katoey)
+[Soi Katoey](#soi katoey)
+
+**TRUTH**
+[Girlfriends](#girlfriends)
+[Aussie Ape Man](#aussie ape man)
+[Going Deep](#going deep)
+[Loi Krathong](#loi krathong)
+[Separafusion](#separafusion)
+[Codigo Rojo](#codigo rojo)
+[Intertwined](#intertwined)
+[Fabric of Life](#fabric of life)
+[Sinking Fortress](#sinking fortress)
+
+**TRANSIT**
+[767](#767)
+[Coming Out](#coming out)
+[Chaos](#chaos)
+[New](#new)
+
+**OMAHA**
+
+[The Smile](#the smile)
+[Gender Confirmation](#gender confirmation)
+[Stereo PTSD](#stereo ptsd)
+[Tough Customers](#tough customers)
+[Caged Spark](#caged spark)
+
+ 
+
+[About](#About)
 
 ---
+
+
+
+
 
 ## Dedication
 
-To...
+> To...
+> Who has always been here but for acceptance, a name and outward appearance.
+> Who never gives up searching, often on the tail of a feeling and a distant hope.
+> Deciding to trust oneself, body and feelings, even when the external world has come up empty on answers.
 
-Who has always been here but for acceptance, a name and outward appearance.
 
-Who never gives up searching, often on the tail of a feeling and a distant hope.
 
-Deciding to trust oneself, body and feelings, even when the external world has come up empty on answers.
 
----
 
-## Ripples
+# ~ ANTECEDENTS ~
 
-> Bluegirls come in every size  
-> Some are wise and some otherwise,  
-> They got pretty blue eyes.  
-> For an hour a man may change  
-> For an hour her face looks strange…
-> 
-> Marching to the promised land  
-> Where the honey flows and takes you by the hand,  
-> Pulls you down on your knees,  
-> While you're down a pool appears.  
-> The face in the water looks up,  
-> And she shakes her head as if to say  
-> That it's the last time you'll look like today…
-> 
-> The face that launched a thousand ships  
-> Is sinking fast, that happens you know,  
-> The water gets below.  
-> Seems not very long ago  
-> Lovelier she was than any that I know.
-> 
-> Angels never know it's time  
-> To close the book and gracefully decline…
-> 
-> Sail away, away  
-> Ripples never come back.  
-> Gone to the other side.  
-> Sail away, away.
-> 
-> Words by Genesis (Rutherford, Banks)
 
----
 
 ## One Day
 
-_One moment can change a day, one day can change a life and one life can change the world._  — Buddah
+>_One moment can change a day, one day can change a life and one life can change the world._  
+>— Buddah
+
+
 
 **Hospital Moderna, Montevideo, Uruguay**
 
@@ -177,7 +198,7 @@ She was starting to see the pattern. These decisions took aggression to make. Ea
 
 She shook her head. 
 
-The paradox of being violent against her own body in the name of authenticity. It had taken the last eighteen months to face and accept that. 
+The paradox of being violent against her own body in the name of authenticity. It had taken the last eighteen months to face and accept that. And years more to even get to that point.
 
 _But I’m still sorry._
 
@@ -207,7 +228,11 @@ And even happiness.
 
 _So maybe, then, there’s no conflict after all._
 
+
+
 * **
+
+
 
 “Good morning Ana.” 
 
@@ -263,7 +288,11 @@ Standing around her bed the surgeons began talking amongst themselves, her face 
 
 Another deep breath came. She felt surprisingly calm. She felt complete trust in this team and what was coming next. 
 
+
+
 * **
+
+
 
 _How much more you appreciate what you have on the day you leave._
 
@@ -301,7 +330,11 @@ _If I live._
 
 For the first time in her life she really saw it for what it was, the passion that made her, to the outside world including her family, appear to be fragmented and lost. Albeit a world nomad who up to now did fine supporting herself and her enigmatic lifestyle and choices. And then the last sprint to the visible goal when the mystery unraveled enough for her to see things clearly, this past year. 
 
+
+
 * **
+
+
 
 As if the thought of running was the cue, the gurney-bed was now in motion, guided by a pair of nurses who had come silently to the task. On her back, all she could see was the ceiling as its dimmed lights as they went by.
 
@@ -343,7 +376,11 @@ _And if this is how it ends, thank you life. I’ve loved you._
 
 She felt the release of big tear dropping from her eye.
 
+
+
 * **
+
+
 
 A port in a wall of glass approached. The sign said _Quirofono 9._ She turned her head in curiosity_._ Inside, smooth white tiled walls were accented with electronic equipment, blinking lights, a few metal tables. She saw the array of x-rays of her skull up on the lighted screen behind the operating table. One more detail making her feel safe, cared for and in the right place. 
 
@@ -373,7 +410,13 @@ Black. Not even that. Not even nothing. Void.
 
 Not.
 
----
+
+
+
+
+# ~ BEFORE ~
+
+
 
 ## Koona
 
@@ -417,7 +460,9 @@ Koona’s husky voice modulated close to her ear, pulling Cat off-guard out of h
 
 She turned her head to Koona with a broad smile as her world, one that was so orderly and bright teetered, like a glass ball balanced at the edge of a precipice.
 
----
+
+
+
 
 ## The Price Tag
 
@@ -461,7 +506,11 @@ This drive supplied the needed aggression and the leap to execute on things the 
 
 _So here I am._
 
+
+
 * **
+
+
 
 The sadness came the moment he saw the old passport. 
 
@@ -505,7 +554,11 @@ _Maybe this is how people feel at funerals._
 
 He’d never understood that completely either.
 
+
+
 * **
+
+
 
 Looking back into the mirror he knew he’d fought his whole life to stay in the light and away from this. Even as a child, San Francisco had felt to be a dark place. The gay place. Of ‘alternative lifestyles’. 
 
@@ -513,7 +566,7 @@ And now here he was in this tiny studio in the Tenderloin, in the heart of the d
 
 _BDSD, S&M, TS/TV… gay… bisexual…_
 
-Words from the shocking adult newspaper he and his brother as adolescents had once found on an SF street on a family visit to the city. All indelibly etched along with the feelings and images a child creates when contemplating incomprehensible sexual acts, some involving pain. Hearing about men, bathhouses and an out of control disease that was killing them. Men who dress as women. 
+Words from the shocking adult newspaper he as an adolescent had once found on an SF street on a family visit to the city. All indelibly etched along with the feelings and images a child creates when contemplating incomprehensible sexual acts, some involving pain. Hearing about men, bathhouses and an out of control disease that was killing them. Men who dress as women. 
 
 And that he was a man too. At least seen as one. 
 
@@ -563,7 +616,9 @@ He shook his head and dropped to the floor. Against the wall of the dark closet,
 
 Because today they do. 
 
----
+
+
+
 
 ## Shocked
 
@@ -593,11 +648,13 @@ In the given moment it was an unclear and confusing feeling.
 
 But not foreign.
 
-_So from where? _
+_So from where?_
 
 Without warning she felt her feet brace against the pool wall, as if not her own, with them and a feeling of giddiness, her hands pushed off like a rocket and buried herself in the water. As deep as she could. Holding her breath as long as she could. No thoughts, just the impulse action of activity, of doing something, anything to maintain her world intact.
 
----
+
+
+
 
 ## Kaa Kaa
 
@@ -641,7 +698,11 @@ _Fuck you puritan creepy fuck-off American culture._
 
 _Thailand is so much easier._
 
+
+
 * **
+
+
 
 The fact was, below the surface as it was, Mali’s pronoun and gender for him, her, or whatever ‘self’ depended upon the world. How others seemed to define him, her, them, whatever. Setting up a perpetual conflict with others and the world. 
 
@@ -661,24 +722,30 @@ Like a variable in computer code.
 
 A variable in code is a placeholder which at least in some languages can be assigned anything… and generally changed while the program runs.
 
+```
 $he = ‘she’  
 $he = ‘he’  
 $he = ‘Mali’  
 $he = ‘Mark’  
 $he = 12345  
 $he = [‘The’, ‘Real’, ’Fuckface’, ‘Von’, ‘Clownstick’].join(‘ ’)
+```
 
 A placeholder, and what’s inside is changeable. A work in progress. Like a shell in a shell game, you may know which shell contains the item, but the shell itself is not the thing inside it, which you may or may not know what it is.
 
 If you’re hacking into some code, you may see the variable but until you look inside it, you don’t know for sure what it contains. It might have a nice name like...
 
+```
 $Cassandra
+```
 
 But look inside… what is in there? 
 
 The world… the people outside see only the variable, not what its value is. And they make inferences and judgements based on only that. Which you can imagine makes it hard for someone like this:
 
+```
 $BigTallMan = ‘Jessica’
+```
 
 Especially when SHE walks into a bathroom in some hick town in Texas.
 
@@ -690,7 +757,9 @@ _Harmonize my variable… my container…_
 
 And do due diligence to know what this mystery inside _actually is_.
 
----
+
+
+
 
 ## Dee and Dee
 
@@ -730,7 +799,9 @@ Koona was no longer there.
 
 Or anywhere.
 
----
+
+
+
 
 ## MRT
 
@@ -774,7 +845,13 @@ Cat was _that_ attractive to $er.
 
 _The perfect woman._
 
----
+
+
+
+
+# ~ DESPAIR ~
+
+
 
 ## Standing
 
@@ -812,7 +889,11 @@ _Not good for skin or beauty._
 
 A few ducks float by on their early morning food paddle making an ever so slight murmur in the still water, oblivious of the silent presence.
 
+
+
 * **
+
+
 
 Mali is after something. Been after something. For years now, day after day, going inside. Not to mention all the years leading up to such. This practice, alone, the solitude and discipline for the good yet still not masterful rewards, also matched the rest of $er life. 
 
@@ -846,7 +927,7 @@ _…comes true authenticity, joy… super-consciousness…_
 
 Or in more practical words, the ability to…
 
-J_ust be myself._
+_Just be myself._
 
 This translated practically to acquiring the ability to move and adjust consciously in micro-movements, aligning the front-back tilt of each body region as well as the lateral and twisting relationship of every body part to the other. 
 
@@ -862,7 +943,11 @@ It made $er happy - and confident - to know that $he never had to be lost to $er
 
 The practice was $er rock. For the mornings. Along with almost daily afternoon hoopdancing. Practice probably being the wrong word. Joy would be a better one. It was a desire and release, not a ‘have to’. Standing, solitary and contained. Hoopdance, passionate and expressive albeit following the same evolution over the years of brute force and effort moving toward grace, softness and minimal effort just as standing.
 
+
+
 * **
+
+
 
 A slight breeze caresseed $er bare arm and face from the side. Like a gentle tug. A reminder of what is truly delicious. At the edge of the lake, like at the edge of life looking on in… 
 
@@ -926,7 +1011,11 @@ _Hopefully._
 
 _And why I am back here in Bangkok today._
 
+
+
 * **
+
+
 
 Mali slowly and slightly rolled the bottoms of $er feet. Pressing the ball of the left foot just behind the big toe into the ground. And then the same on the left. Then each heel too, alternating feet. Outside ball of left foot. Then the right. Inner left ankle. Right ankle, slightly flexing each joint. Outer ankle. Pushing the left heel into the ground and feeling the left knee extend. Then right. Left hip up toward ribs. Right.
 
@@ -952,7 +1041,11 @@ _Maybe other’s bodies work similarly…_
 
 _So things - all this that is my solitary life - could mean something, someday, to someone else._
 
+
+
 * **
+
+
 
 Another warm breeze caressed $er now slightly perspiring skin, the resulting coolness like a whisper making $er feel that everything was and would forever be alright. Everything was already okay in the pure now. Nature and the outdoors had that way with $er. 
 
@@ -970,7 +1063,7 @@ _I just am._
 
 _And have always been._
 
-_This. _
+_This._
 
 A deep breath filled $er like water in the desert breaking the tears of freedom open further. The insidious complex of tension in $er neck, shoulders and heart broke as it often did.
 
@@ -996,7 +1089,11 @@ _I’m nothing._
 
 _And everything._
 
+
+
 * **
+
+
 
 Onwards of an hour later $er closed eyes dozed open slightly allowing in with always surprising vividness color and light as if $he’d slept, as if it was a second new day but in a Technicolor world. Across the striking dark blue lake $er eyes made out the form of a slender and athletic Thai woman jogging. Poised and straight, a graceful neck that seemed to oscillate with each foot-fall, the envy of envies to Mali, being the major challenge in $er own posture. Straight black hair pulled back in a French braid. The muscle tone in her jaw depicted determination and strength, in a kind of masculine way that $he loved to see in a woman. 
 
@@ -1022,7 +1119,9 @@ _Not Cat then._
 
 _Instead, me!_
 
----
+
+
+
 
 ## Thai Reality
 
@@ -1058,7 +1157,11 @@ _Eyes are okay when you feel good, have poise and grace._
 
 Soon $he was back to the preferred solitude as $he upped the steps of the first of two expansive pedestrian skyways which criss-crossed above the tanons and would deliver $er to Tanon Latprao, which would lead back to the hotel. 
 
+
+
 * **
+
+
 
 Making $er way up the second skyway, the panorama was simply city, morning sunlight came from somewhere beyond in the forgotten sky. Two large shopping malls, several skyscrapers with the rest being two or three story serial buildings, the kind and style that seem to populate many large cities, roll up door bodega shops on the first floor with a few floors of apartments above. 
 
@@ -1114,7 +1217,11 @@ _This place is the best chance I have._
 
 _Like it or not._
 
+
+
 * **
+
+
 
 Mali was no stranger to surreal living and the sometimes floating feeling about $er life, in Thailand exacerbated by low cost of living relative to almost any major city in the world. Mali, then Mark, had left the normal ‘job’ life in 2009 and began freelance programming to support $erself. Self-trained, $he had wondered if $he had what it took. But $he got one client that lasted a couple years, then another, then another. All of which enabled first a new life in NYC, then as if to push the boundaries, $he went to live in $er old love, Guadalajara, Mexico. 
 
@@ -1130,11 +1237,11 @@ It was virtually guaranteed to be.
 
 But the unknown was in which direction.
 
----
+
+
+
 
 ## The Pink Button-Down Shirt
-
-**That evening…**
 
 _What was I thinking?_
 
@@ -1150,7 +1257,7 @@ _Date. I was the one who asked…_
 
 Her deep brown eyes and impeccable Japanese poise veiled the internal conversation expertly, adding to the already unknowable mastery of her Thai birth culture.
 
-_But that night… _
+*But that night…*
 
 _What is anything?_
 
@@ -1214,7 +1321,11 @@ _There’s a reason I stayed away and felt so confused._
 
 _I should have listened to that._
 
+
+
 * **
+
+
 
 When Mali had walked in a few minutes late Cat had watched $er approach from afar. At first her eyes caught at Mali’s hips in $er fitted blue jeans. Then $er lower back, smaller, gracefully muscled and more slender than many women… that perfect ass. $he reminded her of the dancer woman in the movie _The Black Swan._ She had admitted to herself that although Mali’s face was masculine, $er body, especially that ass, exuded an energy that felt female. 
 
@@ -1266,7 +1377,11 @@ Cat caught herself in the thought.
 
 _As if you’re looking for a woman, Cat?!_
 
+
+
 * **
+
+
 
 The problem was, the extra feminization Mali attempted out of anxious anticipation of this evening did nothing in the service of the felt inner being $he was so desperately trying to exude.
 
@@ -1326,7 +1441,9 @@ And did it work?
 
 _Not really._
 
----
+
+
+
 
 ## Fuck. Fuck? Fuck!
 
@@ -1436,7 +1553,11 @@ Mali too treated it that way. As a possible aberration. Even up to now, except f
 
 _And then Cat entered the picture._ 
 
+
+
 * **
+
+
 
 Conflicts with no resolution always made Mali’s body tense and angry, as if both sides were tensing opposing muscles, embodying the stuckness. It was really the main thing that would anger $er in life - feeling this way. It’s what made $er heart turn colder. 
 
@@ -1526,7 +1647,9 @@ Each side with barbs that dig in. Pain and bleeding in either direction. Hurts g
 
 _Oh yeah, that’s exactly the life I have right now._
 
----
+
+
+
 
 ## Frustrated Shaman
 
@@ -1578,7 +1701,11 @@ $he took a deep breath.
 
 Every day, sometimes by the hour Mali felt the need to board this fucking train and ride it again, explaining once again everything to $erself. The WHY. It was essential and was required at a moments notice $he be able to do so.
 
+
+
 * **
+
+
 
 _Life is calling my fucking hand._
 
@@ -1628,11 +1755,14 @@ _Ana?_
 
 _Who is ‘Ana’?!_
 
----
 
-## '"Home"'
 
-_Suddenly I see what I want to be. Suddenly I see, why the hell it means so much to me._ — KT Turnstall
+
+
+## Home
+
+> *Suddenly I see what I want to be. Suddenly I see, why the hell it means so much to me._* 
+> — KT Turnstall
 
 Propelled by the still running energy of frustration and anger and the fucked-up situation, Mali had entered $er hotel room, packed quickly and made $er way to the airport on the MRT, having briefly logged in online and booked a seat on the last flight home. It was one of those nights $he knew that $he didn’t care if $he slept. Because honestly, $he still didn’t care if $he died either.
 
@@ -1666,7 +1796,11 @@ _Now I know._
 
 _Life is calling my hand._
 
+
+
 * **
+
+
 
 The rural tranquility hit Mali as $he exited the cab just after 3am and made $er way across the gravel parking lot to the security door of $er building. $he could feel a light breeze. The familiar chorus of cicadas soothed as $he made it up the stairs and down the open-aired hall to $er end unit apartment.
 
@@ -1714,7 +1848,7 @@ _I’m just flushing this… this life… this amazing precious gift… down the
 
 _Destroying a man._
 
-_Going to hell. _
+_Going to hell._
 
 $he knew $he was pushing the red line with $er body. The strange thing being that there was no turn-around moment like in the past where there was enough desire and a moment of full belief to put an end to the insanity and return to male mode. Or accepting $he was fem or a woman but allowing a more full and male developed body to be, which $he could never get $er head around regardless of all the fifty-minute hours $he had done over the years.
 
@@ -1770,7 +1904,11 @@ _Especially those._
 
 $er eyes had caught the ‘over the counter’ Estrofem and Aldactone tablets $he was taking which were in many ways the tipping point. Estrogen and an anti-androgen.
 
+
+
 * **
+
+
 
 Feeling listless, $he flipped on $er Mac to check email… just because. Even, although $he wouldn’t admit it to $erself, $he had a glimmer of hope that Cat might have written… that maybe… she had… rethought things. A persistent pull $he knew even now would just take time to wane. 
 
@@ -1834,7 +1972,9 @@ Regardless of the questions, once $he saw it, the connection could never be eras
 
 _Angel or demon._
 
----
+
+
+
 
 ## Re-Koona
 
@@ -1884,7 +2024,9 @@ Cat felt weak in her stomach. “Koona ka? Is that you?” as tears migrated to 
 
 “Koona ka, can I see you na ka? Karuna ka? I need to see you… please?!”
 
----
+
+
+
 
 ## The Night Market
 
@@ -1988,7 +2130,11 @@ _Not gonna happen!_
 
 $he walked slowly, reminding $erself to stay in $er body and not rush, the only possible chance $he had at enjoying the evening at all.  
 
+
+
 * **
+
+
 
 “Look at the foreigner…” 
 
@@ -2024,11 +2170,17 @@ _Are they seeing me as female, katoey or gay man???_
 
 $he would have done anything in that moment to be fluent in Thai and have Thai friends $he could actually find out the truth from, it would be truly eye opening. But the language aside, the culture tended to put what seemed like a hard barrier between foreigner and Thai.
 
+*At least in my case.*
+
 Tom and Dee were descriptive terms of lesbian women, the closest thing in English being butch or fem, but here they were much more than that. 
 
 Regardless, barring further understanding, Mali took it as a compliment.
 
+
+
 * **
+
+
 
 After another twenty minutes or so, $he was getting hungry and started edging against the general flow of Night Market people over to the street that was all about food. Which of course did not help $er sense of wellbeing, both being hungry and having to try hard to get to where the fulfillment would be.
 
@@ -2110,7 +2262,9 @@ _Almost literally._
 
 Riding the waves. Finally feeling the vortex of forces $he was enmeshed in. 
 
----
+
+
+
 
 ## Recollections
 
@@ -2160,7 +2314,9 @@ Which Castaña knew Ana would take as feeling completely misread, as Ana’s ema
 
 Terrasanto hung up.
 
----
+
+
+
 
 ## The Chinese Tune
 
@@ -2298,7 +2454,11 @@ _What the fuck am I doing?_
 
 But $he _was doing_ and $er own heart was doing it.
 
+
+
 * **
+
+
 
 As $he walked out from the apartment building to the road, the fact was Mali must have looked strange. Coupling how $he already presented normally, with the fact that $he was more out of sorts than in a long time. 
 
@@ -2344,7 +2504,11 @@ Dressed in sleek yoga pants, a tank top, brown Converses accessorized by sparkli
 
 And requested a ride to the Central Chiang Rai mall, pronouncing it ‘Centroo Chiang Rai’ to make sure $he was understood by the driver.
 
+
+
 * **
+
+
 
 Staring out at the passing scenery from the back of the vehicle, Mali mentally prepared $erself for the mall. $he had often left that place in an agitated and angry state and willed today to be different, remembering the visit from a couple days ago…
 
@@ -2406,7 +2570,11 @@ _Thank god I’m not attracted to them._
 
 But $he still had to deal with the atmosphere around $er, like it or not.
 
+
+
 * **
+
+
 
 Thailand had at first held a lot of promise, and even now was still a much softer place than many. But it had it’s own way of dealing with foreigners, much less katoey ones. And where $he had hoped that $he would have been able to become part of the Thai-katoey friendship culture, one of the hardest hit realities was that no matter who you were, foreigners always seemed on the outside here. 
 
@@ -2436,7 +2604,9 @@ _And it’s hard when the overall feedback projected back seems to be that somet
 
 But nevertheless, as $he entered Central Chiang Rai today, $he put on the smile $he had. Because if nothing else it was an emollient to $er own edgy nervous system… as long as $he could make it last.
 
----
+
+
+
 
 ## Reunion
 
@@ -2510,7 +2680,11 @@ _The women…_
 
 _Who had Koona been with?_
 
+
+
 * **
+
+
 
 Cat caught herself as Koona interrupted her brief daydream, 
 
@@ -2614,7 +2788,9 @@ Koona broke the expanding chasm, “It’s getting late, you want to see my new 
 
 “Diiiiiggggs?” Cat questioned. Definitely Koona 2.0. 
 
----
+
+
+
 
 ## Open Soul
 
@@ -2628,7 +2804,9 @@ The mall was bustling - it was the weekend and rather a miracle to get this tabl
 
 With $er Mac booted, opening Gmail in a Chrome tab, a spammy subject caught Mali’s attention. 
 
-_Hey you… from the past._ 
+```
+Hey you… from the past
+```
 
 Mali laughed at the fact that $he was still going to open it and mentally prepared…
 
@@ -2638,37 +2816,42 @@ But at least $he had called it.
 
 $he read the opening line.
 
-_Wow, you’re hard to track down._
+```
+Wow, you’re hard to track down.
+```
 
 Good one, Mali thought, as $he knew $he was going to keep reading falling further for the trap… 
 
-_This is K, remember me? San Diego. Data Incorporated. Who saved your ass over and over until you disappeared???_
+```
+This is K, remember me? San Diego. Data Incorporated. Who saved your ass over and over until you disappeared???
+That one.
+```
 
-_That one._
+At that moment Mali realized this wasn’t spam at all but from the past that now seemed like another lifetime. $he kept reading, intrigued,
 
-At that moment Mali realized this wasn’t spam at all but from the past that now seemed like another lifetime. $he kept reading, intrigued.
+```
+Look this is going to sound too weird and… believe me its weird for me that I am even being driven to write this.
 
-_Look this is going to sound too weird and… believe me its weird for me that I am even being driven to write this._
+I had this dream - no it was almost too vivid for a dream - two nights ago and its staying with me for whatever reason and that’s not normal for me. Like burning a hole in my pocket so to speak, so I need to hand this over to you and be done with it, hopefully --
 
-_I had this dream - no it was almost too vivid for a dream - two nights ago and its staying with me for whatever reason and that’s not normal for me. Like burning a hole in my pocket so to speak, so I need to hand this over to you and be done with it, hopefully --_
+In it I saw you as a child - you know how in dreams you just know who people are even if maybe they look different or you didn’t know them then??, maybe around 8 years old? You were standing with your arms open as if flying and arched toward the sky. I heard the words ‘open soul’.
 
-_In it I saw you as a child - you know how in dreams you just know who people are even if maybe they look different or you didn’t know them then??, maybe around 8 years old? You were standing with your arms open as if flying and arched toward the sky. I heard the words ‘open soul’._
+That’s it.
 
-_That’s it._
+Weird, huh? Does that make any sense to you? Does it help in some way?
 
-_Weird, huh? Does that make any sense to you? Does it help in some way?_
+I know…
 
-_I know…_
+I feel like a stalker, I mean how hard was it for me to find you? You changed from Mark to the nickname MK and then to Mali. How I found you, the only constant thread: you’re continued posting on blogs and message boards re elementary ROR!
 
-_I feel like a stalker, I mean how hard was it for me to find you? You changed from Mark to the nickname MK and then to Mali. How I found you, the only constant thread: you’re continued posting on blogs and message boards re elementary ROR!_
+Duh, dude, if you’re trying to change your identity :(
 
-_Duh, dude, if you’re trying to change your identity :(_
+Its a good thing you suck enough to need that OL chatty shit otherwise harder to find you LOL. I knew you too because of your way of writing, you’re style stayed consistent. You write like a writer and not a programmer. Easy to spot. Good for you :)
 
-_Its a good thing you suck enough to need that OL chatty shit otherwise harder to find you LOL. I knew you too because of your way of writing, you’re style stayed consistent. You write like a novelist and not a programmer. Easy to spot. Good for you :)_
+Your friend,
 
-_Your friend,_
-
-_K_
+K
+```
 
 Mali exhaled realizing $he’d been holding breath. Absorbing the punch in a way. But that was K’s way and sense of humor. Not that it didn’t mean gritting $er teeth. But having learned the hard way, $he knew it was a good thing when K taunted you because it meant she actually cared for and respected you. 
 
@@ -2718,7 +2901,9 @@ _Get my visa fixed for the next few months…_
 
 _And…_ 
 
----
+
+
+
 
 ## The Creepy Sperm Bank
 
@@ -2788,7 +2973,11 @@ Mali shook $er head and shrugged ‘oh well’ as $he walked away down the stree
 
 _But nevertheless._
 
+
+
 * **
+
+
 
 What came the next morning was not a surprise.
 
@@ -2846,7 +3035,11 @@ _And actually got laid more than once every five years._
 
 It was all quite sad. Incomprehensible given what $he dreamed of. $he felt like crying when $he ended the call but did not really know why.
 
+
+
 * **
+
+
 
 Sitting in a mall cafe to refresh, $he took the last sip of $er hot chocolate and saw the bottom of the cup, trying to get one more drop of the delicious mixture, even with $er tongue on the side of the cup, in vein as it was truly the bottom. As if this was the last of sweetness, ever.
 
@@ -2858,7 +3051,9 @@ _And open-fucking soul._
 
 $he _could_ go somewhere else. To get perspective. That was an idea. And however ungrounded it was to run away from your relatively new home in an already foreign land, $he was game at this point. $he felt cornered by life.
 
----
+
+
+
 
 ## All Living Things
 
@@ -2878,7 +3073,11 @@ _Which one was this?_
 
 Whichever one it was, this one was not fully baked. But that could be said about the depressed rock-bottom $he felt in regards to $er life in general lately. $er rock bottom, not unlike walking in a creek bed of sharp rocks, you don’t want to move too much and certainly not too fast.
 
+
+
 * **
+
+
 
 Arriving after thirty minutes, the fare clearly earned, the resort looked nice but lifeless. The taxi pulled up on a gravel parking area in the arriving twilight. To the left the road and the ocean, and to the right, what looked like a pristine - but completely vacant, sparsely lighted resort. $he assumed in the city of Hua Hin there would be movement and many tourists and the whole Thai-massage-expat-geezer scene there $he wanted no part of. $he wanted quiet and tranquility.
 
@@ -2918,9 +3117,11 @@ $he heard a murmur of water as $he noticed that alongside the path was a man-mad
 
 All of the sudden, what $he saw paralyzed $er heart and made $er stop in $er tracks. Unable to move a step further $he sat down right there, in place where $he was.
 
----
 
-## Koona's Klong House
+
+
+
+## The Klong House
 
 “Seriously Koona?” exclaimed a wide-eyed Cat, as the cab stopped in a very working class neighborhood, almost ghetto. It was a long way from Koona’s previous plush condo towering Ploen Chit.
 
@@ -2954,7 +3155,9 @@ _Thirsty for what really are you?_
 
 _Jesus Koona._
 
----
+
+
+
 
 ## 100 Years
 
@@ -3012,7 +3215,11 @@ _Am I killing me?_
 
 _Causing suffering, to my own flesh?_
 
+
+
 * **
+
+
 
 How was it, this unknowable intelligence and gift, within $erself be the same that was seemingly guiding $er to turn a knife against $er own organism? 
 
@@ -3116,7 +3323,11 @@ _Not to date._
 
 Not without someone to help figure $er out. $he knew well too, that’s where ten years and probably $100k had gone. The house most people would have purchased in their thirties sat with $er and these fish in the form of barely remembered fifty-minute sessions, completely impotent. 
 
+
+
 * **
+
+
 
 As $er ass with little padding tired of sitting on the boards, the hope of another way, one $he had never considered or believed in sprouted in $er heart like an angel of light. $he had no idea what that was, but maybe there was. 
 
@@ -3126,7 +3337,11 @@ _Once and for all._
 
 But surrendering to the feeling of being pinned down, feeling it to the core, admitting to it here in front of this little brook, it seemed to have loosened the anxiety and terror of $er situation and of the Chinese Tune. 
 
+
+
 * **
+
+
 
 After who knows how long, $he raised herself and made $er way on. A few minutes later $he reached the actual front of the resort, where $he was in fact greeted by a standing, smiling professional and welcoming Thai staff woman. 
 
@@ -3152,7 +3367,11 @@ _‘What kind of foreigner?’_ the woman wondered.
 
 ‘Just _what kind of hotel is this?’_ Mali wondered back.
 
+
+
 * **
+
+
 
 Mali walked away in a kind of sad stupor. 
 
@@ -3188,7 +3407,9 @@ There was no one around to hear.
 
 _Much less care._
 
----
+
+
+
 
 ## Japanese
 
@@ -3220,7 +3441,9 @@ Still with fear but ready to talk, Cat spoke, “Koona, I’m so afraid,” her 
 
 “I was looking at your place. It reminded me of Japan,” she paused as if wondering if to say what was next, “It was a place… not unlike this…” Cat trailed, “it’s so weird…”
 
----
+
+
+
 
 ## Kali
 
@@ -3278,7 +3501,7 @@ It was different flipping back to guy mode. It had been over a year since $er la
 
 In guy mode when they laughed or said something, it was worse. Because at least if you are clear who you are inside, it’s an insult but in the name of identity. When you’re not even being what you are to your best, all you are is a shell, a feather in the wind, you’re buffeted randomly by the negative you come in contact with. 
 
-_And being a guy you can’t take that kind of shit from people. _
+_And being a guy you can’t take that kind of shit from people._
 
 Of course Mali was forgetting the possible good that could come from being out and about. We all want pleasure but it seems that we’ll do more to avoid pain. And $he was far into triage mode.
 
@@ -3336,7 +3559,11 @@ Even from childhood, $he’d found $erself turned on often with sight of $er own
 
 And since $he was in male mode $he indulged a quick and completely draining release.
 
+
+
 * **
+
+
 
 Post climax $he stood with $er hand on the bathroom counter. The tiny dribble of cum was barely anything to clean up.
 
@@ -3384,7 +3611,11 @@ And that was just the tip of the iceberg.
 
 _Trying to be a man again. Hmmm…_
 
+
+
 * **
+
+
 
 After cleaning up the remains of the jeans and the sad situation in the bathroom, ‘he’ went out on to the balcony and found a very comfortable wooden reclining rocker - much more comfortable than it had first looked. $he took a breath and looked out on the greenery and jungle-like aspect of the resort, with the pool and then the ocean off in the distance. 
 
@@ -3488,7 +3719,9 @@ _Mental turds can certainly ruin one’s view._
 
 Mali smirked then actually laughed at the image. Pretty funny.
 
----
+
+
+
 
 ## Cat's Heartbreak
 
@@ -3662,7 +3895,9 @@ _So typical. The perfect Japanese woman. Wouldn’t know she’s asleep aside fr
 
 Koona went to the bedroom area and her eyes quickly fell on her soft body-length pillow. With a glint in her eyes she grabbed it along with a light comforter. 
 
----
+
+
+
 
 ## The Blackest Sheep
 
@@ -3674,7 +3909,7 @@ It was $er last day of the lonely and unproductive retreat.
 
 Where in the past solitude had allowed $er to work things out, the current was unworkable no matter what $he tried. $he’d escaped Chiang Rai and then Bangkok to this god-forsaken place carrying high hopes.
 
-_ **Going to hell**_
+**_Going to hell_**
 
 $he had written it and now etched it indelibly by going over and over it again and again by pen in $er journal. 
 
@@ -3752,7 +3987,11 @@ _Was there an alternative to ending up here? To going further on this road… wh
 
 Mali by this point was pretty sure there were no mistakes in the universe. Who and how we are born. Born gay. Born straight. Lesbian. Bi…
 
+
+
 * **
+
+
 
 _But transgender?_
 
@@ -3864,13 +4103,19 @@ $he would not give up hormones nor medicine to prevent hair loss nor body waxing
 
 _And be so with a woman._
 
----
+
+
+
 
 ## Sarai
 
 Over these days at the resort, one of the visits to the past $he made was to Sarai, the first transgender woman the 'he' of back then was with, one of the handful of events that started making ‘being a man’, in romance and sexuality, something that could not be returned to...
 
+
+
 * **
+
+
 
 They stood in front of each other, the two virtually equal in height. No heels involved.
 
@@ -3895,7 +4140,7 @@ The two were already undressed virtually before getting through the door of Sara
 Sarai interrupted, “I know what you want,” she cooed sensually, reaching down to pull aside the front of her thong to reveal a beautiful penis, worthy of being called female. It _was_ exactly what he wanted. She was completely smooth and smelled amazing. It was perhaps even not so much the object, but the energy behind it, her strong hardness the figure and symbol of explicit feminine desire.
 
 _How I want a woman to want me._   
-T_o want to take me._   
+_To want to take me._   
 _To be powerful and strong enough to take me._   
 _To be able to surrender in her arms._
 
@@ -3945,7 +4190,11 @@ But he loved how she felt, and how he himself felt. Especially pulling her to hi
 
 _Something in life for once felt right._
 
+
+
 * **
+
+
 
 Afterwards, he found a new comfortability and peace with men. 
 
@@ -4003,7 +4252,11 @@ _That way._
 
 _As a woman… by a woman…_
 
+
+
 * **
+
+
 
 Sarai lost interest as soon as he started his own way toward the feminine. 
 
@@ -4025,7 +4278,13 @@ So of course the problem was then as was now…
 
 _Where does that leave me other than with a knife in my hand and a seemingly impossible task ahead?_
 
----
+
+
+
+
+# ~ CAT ~
+
+
 
 ## Un-American
 
@@ -4077,7 +4336,11 @@ _Like the Japanese geisha._
 
 Not to mention all the times in life $he was naive and simply proved wrong, left feeling the mud on $er face. But it still did not change the feeling because the longing could not be erased. The thirst was too great.
 
+
+
 * **
+
+
 
 “Thank you for always being so kind to me here,” Mali smiled at Cat as $he returned to the white waiting room couch following $er treatment. There was a new cup of tea waiting for $er. 
 
@@ -4183,7 +4446,9 @@ It was pretty anathema in her culture to even have this thought not to mention a
 
 Mali felt at ease again and smiled, “Great!”.
 
----
+
+
+
 
 ## Chatuchak Park
 
@@ -4291,7 +4556,11 @@ As if on cue there were a few tones that came from the park loudspeakers that ha
 
 It was a peaceful moment of stillness and unity with all others that Mali had come to love. It was not like the in your face heart and bible beating national anthem of the USA. If anything, it was quiet, peaceful and polite. The best of Thailand. 
 
+
+
 * **
+
+
 
 They had now made it over to the far north side of the park, now in the dusk shade, they sat on a bench near the lake, not far from where Mali would come to stand in the mornings.
 
@@ -4427,7 +4696,11 @@ As Cat led $er by the hand it made $er remember a dream $he had had many years a
 
 The one $he’d trust with $er life. And dedicate $er life to.
 
+
+
 * **
+
+
 
 The walk and lighter conversation did them both good, which turned into a decision to have dinner nearby at an open restaurant that specialized in delicious seafood and fish. As well as, could be expected, spicy. Which was not lost on them as at one point the whole seating area filled with an almost noxious smoke floating in the air of heated pepper, causing everyone to fan their eyes and many to cough and tear. 
 
@@ -4491,7 +4764,9 @@ But it was better to let this - whatever it was - breathe. Heck, let $erself bre
 
 As Cats head disappeared from view down the escalator, Mali turned and began to walk, with a knot in $er stomach. It was a mile or so back to $er apartment and $he needed every step to even get $er head around even the surreal fact that this lovely afternoon and evening had actually happened.
 
----
+
+
+
 
 ## Away
 
@@ -4535,17 +4810,25 @@ It had been several years since $he had liked anyone enough to ask this question
 
 And so much time and life had passed since then. And so much more femininity had overcome $er.
 
----
+
+
+
 
 ## Chiang Rai
 
-_It's a battered old suitcase to a hotel someplace, and a wound that will never heal. _ — Tom Waits
+> It's a battered old suitcase to a hotel someplace, and a wound that will never heal. — Tom Waits
+
+
 
 The plane banked and dropped in altitude, in the midst of farmlands and green hills, Chiang Rai came into sight. Mali took a spontaneous deep breath. Somehow, regardless of everything of the last day, this felt good. The plane flight and travel gave perspective, as well as distance not only from Cat but from who $he was in Bangkok. $he had already started to become conscious in the last few geographical moves $he’d made in life, that $he was in some sort of process of integration. Moving to a new place allowed $er to see more fully what was $er, and what was simply an artifact of the place $he had lived previously. By moving rather regularly, patterns could be seen that otherwise $he’d have missed. 
 
 After a smooth landing, the exit from the airplane was down a staircase onto the tarmac outside. Which $he loved. There was something comforting and grounding about this. Something more real than the abstraction of climate controlled jetways to airports which isolated one from feeling what was really there in the new destination. 
 
+
+
 * **
+
+
 
 It had been late afternoon when Mali completed $er ‘move in’, laid out $er yoga mat and sprawled on the floor in a starfish position, exhausted. The studio apartment had a high sloped ceiling with high windows on one side, and a larger window on the far side near the bathroom. Allowing light in but also regardless of the time of day, keeping a tranquil darkness and cool over the room.
 
@@ -4573,7 +4856,11 @@ _The fucking laughter. Jesus._
 
 But $he was in a pretty resilient mood, noted the place and to be wary of anyone there and continued on.
 
+
+
 * **
+
+
 
 $he wandered, looked and wondered. $he could own one of those modern houses, no problem. All $he had to do was get serious with work, accept to open the offshore software development company $er current client had been asking about. It was a train of thought that was far from home in $er own soul and passions for work but resurrected in connection with the question of Cat. 
 
@@ -4611,7 +4898,11 @@ And it was totally unacceptable to be a man with breasts.
 
 It just was.
 
+
+
 * **
+
+
 
 But unlike in the past, now contemplating Cat, something in $er hesitated and even pushed back. Even on this day in which she felt so very enamored with Cat. Regardless of not passing as a woman currently. Even to get back to the semblance of a mans body… 
 
@@ -4655,7 +4946,11 @@ _Probably._
 
 _Just a ‘katoey’ friend._
 
+
+
 * **
+
+
 
 So having made yet another pass through the contents of $er trunk of despair, coming around the last bend ahead in the physical world in contrast, was paradise to $er eyes. A park, with shade trees, many gazebos, all along a flowing river. On the other side was rural country, houses and hills in the distance. 
 
@@ -4665,7 +4960,9 @@ There was something holding $er from full surrender. Ever since taking the ‘go
 
 The clock of life was ticking and this conflict was not going away. 
 
----
+
+
+
 
 ## Skype
 
@@ -4679,27 +4976,35 @@ The problem was that over so much time $he’d not developed the strategies to h
 
 In some moments $he heard from the bathroom the Facebook ping and simultaneously felt that also familiar feeling hope mixed with anxiety, ripping off the recently placed band-aid against being disappointed. Shutting off the faucet $he had just opened, $he made $er way out, to the low table on which $er Macbook Air sat. A chat message from Cat.
 
-**Cat:** _I’m home now. How are you? How’s Chiang Rai?_
+```
+Cat: I’m home now. How are you? How’s Chiang Rai?
+```
 
 Mali felt in $erself the impulse to think through what $he was going to say - given all the inner conflicts $he had been facing and the fact that regardless of them, there was part of her $he had no control over that no matter what wanted to get closer to Cat. But then, for some reason, $he let it go and just wrote what came to mind…
 
-**Mali:** _Hey! It’s good. Quiet. Like a writers retreat… I may actually get some things done here :)_
+```
+Mali: Hey! It’s good. Quiet. Like a writers retreat… I may actually get some things done here :)
 
-**Cat:** _That’s good but Bangkok misses you!_
+Cat: That’s good but Bangkok misses you!
+```
 
-_Really? How is that, Cat?_
+*Really? How is that, Cat?*
 
-**Mali:** _Really?_
+```
+Mali: Really?
 
-**Cat:** _Of course. Well, I miss you._
+Cat: Of course. Well, I miss you.
+```
 
 _Fuck._
 
-**Mali:** _I miss you too. It was so fun hanging out with you and having dinner. I’m kind of sad here, alone._
+```
+Mali: I miss you too. It was so fun hanging out with you and having dinner. I’m kind of sad here, alone.
 
-**Cat:** _Well you know there are ways to stay in touch! Do you have Skype?_
+Cat: Well you know there are ways to stay in touch! Do you have Skype?
 
-**Mali:** _Yeah, we should do that…_
+Mali: Yeah, we should do that…
+```
 
 On Cat's request $he typed in and sent $er Skype id.
 
@@ -4711,7 +5016,11 @@ _Prepared for this? Not one bit._
 
 _But here we go._
 
+
+
 * **
+
+
 
 Mali answered.
 
@@ -4755,7 +5064,9 @@ So began a few weeks of impromptu connections together every few days on Skype. 
 
 And the distance allowed $er to continue sitting on the fence with $er drawn out life-conflict and keep guessing about what might be going on here.
 
----
+
+
+
 
 ## A Plan
 
@@ -4771,31 +5082,43 @@ Just for good measure $he decided to check $er email one last time, as $he liked
 
 There was an email from Cat. $he clicked it open. Simply written, with the greeting to Mali in Thai script as Cat had been helping $er learn during their Skype calls,
 
-> สวัสดีคุณมาลีค่ะ_,_
-> 
-> I’m coming to Chiang Mai for the weekend to see my family. Do you want to come down? Maybe Sunday?
-> 
-> Cat :)
+```
+สวัสดีคุณมาลีค่ะ,
 
-_Do I want to come down? What do you think, Cat?_ 
+I’m coming to Chiang Mai for the weekend to see my family. Do you want to come down? Maybe Sunday?
 
-It was perfect, a nice rest day and then $he’d go see Cat. This would normally have been all sorts of anxiety provoking for Mali given $er sense of closeness and wanting more of Cat, but strangely, it all felt transparent. To date they just flowed, really like great friends. They had seen each other in their night clothes and without makeup. They had shared some of their own deep wishes and feelings about what was going on in their lives. They even talked about Mali’s in between state and how $he felt. The only thing they did not talk about was what was going on between them, if anything else was. 
+Cat :)
+```
+
+_Do I want to come down?_
+
+_What do you think, Cat?_ 
+
+It was perfect, a nice rest day and then $he’d go see Cat. This would normally have been all sorts of anxiety provoking for Mali given $er sense of closeness and wanting more of Cat, but strangely, it all felt transparent. To date they just flowed, really like great friends. They had sxeen each other in their night clothes and without makeup. They had shared some of their own deep wishes and feelings about what was going on in their lives. They even talked about Mali’s in between state and how $he felt. The only thing they did not talk about was what was going on between them, if anything else was. 
 
 Certain things Mali knew, and $he could swear there was something more going on than just friendship.
 
 Mali easily replied,
 
-> สวัสดี คุณ แมว ค่ะ, 
-> 
-> OMG yes, I’ll look forward to it. I’ll go and buy an early bus ticket to Chiang Mai, get there about 9 or 10am on Sunday? Is that good? 
-> 
-> Mali
+```
+สวัสดี คุณ แมว ค่ะ, 
+
+OMG yes, I’ll look forward to it. I’ll go and buy an early bus ticket to Chiang Mai, get there about 9 or 10am on Sunday? Is that good? 
+
+Mali
+```
 
 For the heck of it after $er movie that night, Mali allowed the dispensation to check email again, and Cat had responded,
 
-> Wonderful, I look forward to seeing you. Maybe we can go to Wat Doi Suthep, it’s the monastery high up the hill overlooking Chiang Mai. I have a feeling you’ll enjoy it.
+```
+Wonderful, I look forward to seeing you. Maybe we can go to Wat Doi Suthep, it’s the monastery high up the hill overlooking Chiang Mai. I have a feeling you’ll enjoy it.
+```
+
+
 
 * **
+
+
 
 Mali texted Cat as the bus pulled into the Chiang Mai station, 
 
@@ -4821,13 +5144,15 @@ What else could $he say? $he had no idea what he was getting into. Aside from a 
 
 _OMFG!_
 
-Cat's polish and perfection had to have come from somewhere. $he shuddered and knew $he was in for something and it might be embarrassing. Even if they were nice to $er as they in all likelihood would be, it could be… awkward. 
+Cat's polish and perfection had to have come from somewhere. Mali shuddered and knew $he was in for something and it might be embarrassing. Even if they were nice to $er as they in all likelihood would be, it could be… awkward. 
 
 Why was Cat being so open - at first it was just Cat - but with her family? It seemed that Thai families were quite private, not to mention with foreigners. 
 
 All things considered, Mali was thankful that Cat had only informed $er of this now and not the other day. 
 
----
+
+
+
 
 ## John Lennon
 
@@ -4843,7 +5168,7 @@ Mali half jolted at the surprise and proximity.
 
 “You didn’t see us pull up?”
 
-Cat was wearing a form fitting one piece white cocktail dress, hemmed a few inches above her knees, matching white heels. And everything else black - beaded necklace, earrings and creative ring assortment, all onyx. Which brought out the dark of her eyes and laser straight hair which she was wearing down for once. 
+Cat was wearing a form fitting one piece white dress, hemmed a few inches above her knees, matching white heels. And everything else black - beaded necklace, earrings and creative ring assortment, all onyx. Which brought out the dark of her eyes and laser straight hair which she was wearing down for once. 
 
 Mali was entranced as Cat gestured to the car $he came from. The 500, of course. Also apparently part of the outfit.
 
@@ -4913,7 +5238,9 @@ And with the instruction the car was in motion.
 
 As if reading Mali's mind, Cat brushed $er forearm, “Come on, let's enjoy the scenery for now, okay?” 
 
----
+
+
+
 
 ## The Restaurant
 
@@ -4991,7 +5318,9 @@ $he pulled out the bench and sat down, Cat joined $er at the edge, “Is this ok
 
 “More than okay,” Mali smiled back. Everything felt just like home.
 
----
+
+
+
 
 ## Piano
 
@@ -5039,7 +5368,11 @@ All $he really wanted was for someone else, another, to feel how $he felt, toget
 
 And the piano was an attempt at such communication.
 
+
+
 * **
+
+
 
 $he checked in and Cat looked like $he was having a good time, eyes closed and comfortably leaning on her arm, leaning slightly toward $er. Deep inside Mali wanted and wondered. If Cat’s consciousness was placed inside $er own body, and $he in Cat’s. Or for that matter interchanged with anyone else. Would the feeling be familiar or of a different world of feeling? 
 
@@ -5053,7 +5386,11 @@ Can anyone love so much to really be one so you feel everything together and the
 
 And if it was, this was the kind of place, this land of Cat and her family, the kind of world where it could happen. Maybe the only place.
 
+
+
 * **
+
+
 
 Cat sat even deeper in herself. Her head down, hands now in her lap, head tilted to the right, almost appearing asleep. She wanted more of what she felt in this music. This flow. She wished she could have Mali playing while she was falling asleep, it for sure would bring her to places in dream that were the best of where she would hope to ever go. The encompassing and warmth she longed for. Even in pain or death presence, these sounds would be light and hopeful. 
 
@@ -5081,7 +5418,9 @@ _Everything was always better with my best friend._
 
 _Fuck…_
 
----
+
+
+
 
 ## The Path
 
@@ -5131,13 +5470,21 @@ Mali turned to Cat as she led the way just a step ahead, “sorry, I got carried
 
 Mali actually hoped Bow was serious. Of course $er motives would be all twisted... would accepting to come here to work be for the music or just because $he felt this family was surrounded in light and $he wanted more of it? 
 
+
+
 * **
+
+
 
 A few minutes later Cat led Mali from the restaurant, back the way they had came. The patrons unobtrusively watched and smiled. Many of them were regulars or those who knew the family. Who knew Cat. And _that_ Cat did not lead men around, or even really accompany them for that matter, except for in the most formal and rigid etiquette. It was like she was leading a girl-friend more than a man but that was lost for the most part on the people there. 
 
 They saw ‘his’ feminine physique, but many Thai men as well were pretty, gosh, with virtually female faces, which of course Mali would die for. Slender bodies too. They did not see ‘his’ makeup or jewelry. All they saw was ‘his’ back while 'he' played then being led out by Cat.
 
+
+
 * **
+
+
 
 When they had made it up the driveway, past the little rustic parking area, they turned to the left onto a path which was almost a tunnel created by trees. Light came through but it was shady and relatively cool. Cat turned, smiling and said “I could not say it in front of my mom, but that was beyond amazing! Your playing was like it was from another world. It made me feel so happy and calm. I wish I could listen to you play everyday!”.
 
@@ -5183,7 +5530,9 @@ Mali was speechless again. It kept getting better. All this reminded $er of the 
 
 Mali had spaced out. Coming to, $he hopped up along the last fifteen feet of the path and up the steps to a new paradise. 
 
----
+
+
+
 
 ## Sweetness
 
@@ -5241,7 +5590,11 @@ It took Cat a minute to process the sentence as it could mean more than one thin
 
 “All I can say is it’s nice, whatever it is,” Cat drawled in a beautiful feminine sing-song.
 
+
+
 * **
+
+
 
 As if on stage cue, there was the sound of gravel, shoes and what sounded like skipping which preceded the appearance of Kwanjai. She bounded up into the gazebo beaming her happy-mischievous smile, as Cat rolled her eyes. At that moment Mali further recognized the humanity in Cat and that she did not just come out of nowhere as a polished Thai-Japanese spokesmodel but had a real family and past. The drama of siblings. 
 
@@ -5277,7 +5630,11 @@ Coming out of the fit, through $er tears $he turned $er head to the right and lo
 
 “Well, you two stupid and crazy! She wanted tell you that - she did not want know all those thing - I did. _She_ wanted tell you that we going soon to city,” then switching to the easier for her Thai, directing at Cat “Father has some business that came up, he wants you to join him as the company counsel can’t make it,” then back to English, “So chop-chop - Mali is that right how you say it? - hurry up!, lets go?!” She turned on her heels and sashayed out of the gazebo and down the path. The ‘chop-chop’ thing to Mali confirming the family relation and intelligence shared between her and Cat.
 
+
+
 * **
+
+
 
 Mali and Cat were left to face each other and finish the laugh, prolonged by Kwan’s final monologue and stage exit. The laughter broke through the tension and was probably just as well for now. Interestingly, both felt free to call an end to the beautiful foray to the gazebo and head back to wherever it was they were going back to. 
 
@@ -5299,7 +5656,9 @@ But how it would actually play out was still beyond her wildest dreams.
 
 And at this point beyond Cat and Mali’s too.
 
----
+
+
+
 
 ## Parting
 
@@ -5361,7 +5720,9 @@ She smiled, “Talk soon.”
 
 “Perfect," Mali smiled back.
 
----
+
+
+
 
 ## Kad Suan Kaew
 
@@ -5413,7 +5774,11 @@ _Jesus, literally!_
 
 $he felt the constriction of sadness and tears inside, now sitting alone, all of the sudden. In the midst of what seemed like now again unknowable chaos, with Cat in the distance being the form that unified things back to colorful coherence and light, combined with the fuel of the ever-held longing and conviction in $er own heart.   
 
+
+
 * **
+
+
 
 Returning to the bus station, Mali was dazed. The kaleidoscope of $er inner fragmentation had shifted. But just as a kaleidoscope, it was a new arrangement of light and colors but the pattern that put it in motion was one and the same as before.
 
@@ -5531,7 +5896,11 @@ _Be a man. Or be myself. Be with Cat or be me._
 
 _I guess…_
 
+
+
 * **
+
+
 
 In the accompanying depression, Mali’s conscious processing petered out and sleepy trance settled in as $he relaxed in the seat, snuggled in $er down jacket as protection from the infamous frigid A/C of this particular bus line, staring out the window at the passing scenery. 
 
@@ -5591,12 +5960,16 @@ Alone, in a strange foreign land.
 
 And in an equally remote place with $erself inside.
 
----
+
+
+
 
 ## Surprise
 
-_The absence of expectations results in the reduction of disappointments._   
-— Buddhist saying
+> _The absence of expectations results in the reduction of disappointments._   
+> — Buddhist saying
+
+
 
 Cat’s jaw dropped slightly but perceptibly as Mali entered the clinic unannounced. A moment of of vulnerability ensued before she could marshal her poise again. Mali looked different, a bit ragged. Tired, eyes a bit puffy. But as the unexpected feelings floating through her, such perceptions were more in the background.
 
@@ -5642,7 +6015,9 @@ Mali felt finally good again in $er heart. $he smiled and took a breath as $he w
 
 Oh, in HIS heart I meant to say.
 
----
+
+
+
 
 ## Suan Benjasiri
 
@@ -5767,7 +6142,11 @@ _How could it be?_
 
 This Mali was all she’d ever wanted on paper. But in the end not. 
 
+
+
 * **
+
+
 
 After a few more minutes of staring, appreciating and deliberating, Cat spoke in a soft, breathy, huskier tone.
 
@@ -5823,7 +6202,11 @@ $he was back where $he was a few weeks before. But more solidly. Just like every
 
 _It always ends with tears and ‘coming to Jesus’._
 
+
+
 * **
+
+
 
 At that moment a sheet of rain fell.
 
@@ -5879,7 +6262,9 @@ Out of the park, onto the street.
 
 Down a block and a turn.
 
----
+
+
+
 
 ## Are We There Yet?
 
@@ -5935,7 +6320,11 @@ _What does it mean if I like it… enjoying getting close?_
 
 Right then surfaced the moment of that almost kiss at the pool with Koona. Unconsciously her smile and feeling of aliveness broadened. Something let go in her pelvis deep down that she had never felt before it seemed. It was freeing.
 
+
+
 * **
+
+
 
 “Are we there yet?”
 
@@ -5999,7 +6388,9 @@ $he looked in the mirror, grabbed the comb and ran it through $er hair. $he look
 
 Ready, $he opened $er door and made $er way.
 
----
+
+
+
 
 ## Broken Rules
 
@@ -6031,7 +6422,11 @@ _A code mercenary._
 
 With the purpose just to figure $erself out, continue the path and carry on. 
 
+
+
 * **
+
+
 
 “Do you know how many rules I’ve broken for you today?”, Cat broke Mali out of $er trip down memory lane Cat's space had inspired.
 
@@ -6075,7 +6470,11 @@ The last sentence stung Mali for a minute but $he let it go.
 
 Mali smiled using Cat’s own wink-smile.
 
+
+
 * **
+
+
 
 “So do you like prawns?” Cat had turned, fumbling with the silver doored refrigerator.
 
@@ -6191,7 +6590,9 @@ _Or even be here with Cat._
 
 Suddenly they both caught eye of the cloud of smoke and a flame rising from the wok.
 
----
+
+
+
 
 ## Only You Are Confused
 
@@ -6249,7 +6650,11 @@ But the nightshirt worked. And this evening worked.
 
 In the day, $he’d pass as female if $he’d just cover $er head with a paper bag. This conflict, coupled with what felt like a growing intimate estrangement from Cat in the last half hour saddened $er.
 
+
+
 * **
+
+
 
 Settling at the petite glass dining table positioned adjacent to the main window, they were quiet. The conflicted sadness that was building again in Mali, in counterpoint to the jubilation of feeling so free with Cat on the way over made $er want to cry.
 
@@ -6307,7 +6712,11 @@ Cat burst out laughing but then curbed it in.
 
 “Sorry, I’m just listening to you. I think the only one who is confused about you is you!”
 
+
+
 * **
+
+
 
 But the depth of Cat’s perceptiveness was lost on Mali. Because $he was distracted with the desire for Cat to truly understand. And in it all, still truly want $er. 
 
@@ -6361,7 +6770,9 @@ Mali returned Cat’s magneto-dominant gaze with the opposite polarity. For the 
 
 “Let’s go sit in the living room, okay?” Cat got up and held out her hand for Mali’s and led $er back to the living room. 
 
----
+
+
+
 
 ## No Promises
 
@@ -6451,7 +6862,11 @@ _But not tonight._
 
 Mali moved as $he could closer to Cat, also breaking into tears, her full lips pouting, at the moment they came together. 
 
+
+
 * **
+
+
 
 “Is this what it’s like to be with a girl?” 
 
@@ -6487,7 +6902,11 @@ _If they so decide._
 
 It was as if in this slow coming together they were ironing off any rough edges between them, each body softening, toward the point where the others person, body, even spirit seemed more and more just like their own. 
 
+
+
 * **
+
+
 
 Whether it was a few minutes or an hour later, neither could tell, but the doorbell rang. Cat perked up at the sound and Mali reluctantly loosened what $he had hoped would have been a single eternal focus. 
 
@@ -6553,7 +6972,9 @@ Mali in $er abandon had gotten a piece of frosting stuck to $er lower lip and be
 
 “I think _that_ was the best part,” Cat looked seductively back at Mali who only now noticed that Cats hand rested on the mid-thigh of $er left leg $he had crossed under $er and was sitting on.
 
----
+
+
+
 
 ## The Actual Dessert
 
@@ -6607,7 +7028,11 @@ _I never considered that._
 
 _Why?_
 
+
+
 * **
+
+
 
 Their bodies were gently upon each other. An electric charge pulsed between and through their clothes. They were of the same material which wanted only to melt and fuse.
 
@@ -6629,7 +7054,11 @@ So, normally at this point, $he would be worried with a woman, about being able 
 
 But not here. As $he continued feeling Cat’s silky touch make its way up $er back, $he hadn’t noticed Cat simply and transparently lifting herself up, embracing Mali’s hardness between her thighs. Cat looked up and smiled into Mali’s eyes while pouting her lips for another soft kiss.
 
+
+
 * **
+
+
 
 “Come here you,” Cat dropped her hands to Mali’s wrists, leaning backward against $er natural resistance, intimating the direction of the bed. Mali just let $erself relax as Cat’s inertial momentum moved $er forward a few steps, falling onto the bed beside her. 
 
@@ -6653,7 +7082,9 @@ Cat reached up to Mali’s shoulder and pulled herself up to $er face, her body 
 
 They were a perfect match, both slender, toned and smooth. Feeling Cat’s skin touch full frontal against $er was the electric heaven $he’d been after. 
 
----
+
+
+
 
 ## Roles
 
@@ -6785,7 +7216,11 @@ As she held Mali in her power-plant against the wall, feeling $er soften, Cat kn
 
 The shadow of culture leered as it slunk back into the periphery.
 
+
+
 * **
+
+
 
 As the moments progressed, the only constant was the force with which Cat kept Mali against the wall.
 
@@ -6849,7 +7284,9 @@ She was with Koona now.
 
 But Koona was not here and would never be. 
 
----
+
+
+
 
 ## I Think I Should Go Now
 
@@ -6899,7 +7336,11 @@ It felt sexy to sit here with her. Knowing how they had connected, this woman kn
 
 Always avoided, always wrong in and to the world. Always wrong in the mirror. But once again, not in $er deepest expression, as last night testified.
 
+
+
 * **
+
+
 
 They ate in silence the fruit, juice, croissants. And coffee for Cat, declined by Mali. There was no way $he needed caffeine or any other body-mind altering substance today. 
 
@@ -6951,7 +7392,11 @@ Mali whispered as using $er voice any more would just lead to breaking into more
 
 “I think I should go now,” as $he pushed back and was released from Cat’s arms. Breaking away felt empowering, albeit the last option of power $he had in the situation.
 
+
+
 * **
+
+
 
 The clothes were on the bathroom counter. 
 
@@ -6967,7 +7412,11 @@ She took them, feeling them softer from Cat’s touch and care as $he ran her fi
 
 They even smelled good.
 
+
+
 * **
+
+
 
 Mali knew better than to look back as Cat gently closed the door behind $er. $he heard the solid click of the lock into the well engineered frame. 
 
@@ -7003,7 +7452,9 @@ Everything that came out of $er naturally last night was $er feminine. It felt e
 
 Authentic.
 
----
+
+
+
 
 ## Back Alone
 
@@ -7057,7 +7508,11 @@ As such was one of the most remarkable yet shocking aspects of her culture. But,
 
 _And even happier. What's the value of problems and worry anyway?_
 
+
+
 * **
+
+
 
 Mali laid on $er yoga mat as $he contemplated things, stretching and twisting her body. It was true, how much there was to unpack and process from last night. Most of her mind since leaving Cat’s was on the alluring sparkle of some new possibility in $erself, regardless of Cat’s continued romantic interest or even friendship. 
 
@@ -7087,7 +7542,13 @@ _If I never hear from Cat again in time I know I’ll doubt if it ever happened.
 
 Still laying on her mat in $er underwear, $he pinched $erself and it seemed to hurt.
 
----
+
+
+
+
+# ~ LAY OF THE LAND ~
+
+
 
 ## Such Misery
 
@@ -7193,11 +7654,13 @@ _It’s time to get help._
 
 Even in four days in solitude here she had not resolved a thing beyond that was known:
 
-- I am not going to be a man with breasts.
-- If I continue hormones its irreversible and I’ll become sterile if I have not yet. 
-- I could get face surgery and maybe it would all get better.
-- But will any woman have interest in me, even love me? Would I even pass as female? At all?
-- Will hormones change me and I still want a woman? Because I couldn’t stand wanting a man.
+* I am not going to be a man with breasts.
+* If I continue hormones its irreversible and I’ll become sterile if I have not yet. 
+* I could get face surgery and maybe it would all get better.
+
+But will any woman have interest in me, even love me? Would I even pass as female? At all?
+
+Will hormones change me and I still want a woman? Because I couldn’t stand wanting a man.
 
 $he could see the surgical masks, smell and feel the anesthesia running through $er veins, and what felt like the dark side loom. The Chinese Tune .
 
@@ -7205,7 +7668,11 @@ A vision of a feminine looking poised man entered $er mind, sitting having dinne
 
 _I’m too far gone…_
 
+
+
 * **
+
+
 
 Mali finally made $er way to the small outdoor restaurant that $he had made $er favorite while there. $he wore the same cut off jeans still and a button down shirt tied at the waist. As $he sat and looked over the late evening road and seaside, over time $he saw a few couples and families coming in. The last was two women together. 
 
@@ -7227,7 +7694,11 @@ _I don’t want to be seen as a guy and be invisible._
 
 _I’d prefer this always._
 
+
+
 * **
+
+
 
 After $he paid the check, $he took a walk in the dark along the road bordering the rock beach. At a point up ahead $he saw some cars being parked on the road, and a couple men who looked like parking attendants for the cars. 
 
@@ -7257,7 +7728,11 @@ One last scream escaped Mali, absorbed into the wind as if to confirm $er overal
 
 “What the fucking goddam hell is this shit?!!!”
 
+
+
 * **
+
+
 
 Approaching $er resort an older couple was sitting on the porch of their traditional yellow rustic house at the lot next door. Mali had noticed them in passing moments while sitting on the wall that afternoon.
 
@@ -7267,7 +7742,11 @@ The old woman shook her head.
 
 Mali understood nothing.
 
+
+
 * **
+
+
 
 The full plastic water bottle exploded against the wall. As if in slow motion $he watched the water scatter, then what remained of the vessel ricocheted and as if in a final fuck-you landed on the bed where it emptied its remaining contents.
 
@@ -7319,7 +7798,9 @@ $he closed $er eyes.
 
 And slept.
 
----
+
+
+
 
 ## On the Moon
 
@@ -7355,7 +7836,11 @@ _Friends._
 
 _Dressing to go out with friends._
 
+
+
 * **
+
+
 
 The night was cooler than normal, only a mellow heat remaining to the day which had turned a bit windy and overcast, and strangely lacking the typical humidity. 
 
@@ -7413,7 +7898,11 @@ _But, if Koona met someone???_
 
 Now that was not a pleasant thought. 
 
+
+
 * **
+
+
 
 As their two other friends chortled over some recounted situation, Koona turned to Cat.
 
@@ -7437,7 +7926,7 @@ _What my body is saying. My heart._
 
 In that moment she wanted to just cry.
 
-**_That’s what_** _, Koona._
+**_That’s what_**_, Koona._
 
 _Right Cat, just friends._
 
@@ -7493,7 +7982,7 @@ Koona raised her eyebrows to the ceiling as her own heart sunk. She had caught h
 
 Which unleashed what she actually whispered back… 
 
-“Well, I’m here with you, aren’t I? Every night this week if I’m counting right. That tell you something?
+“Well, I’m here with you, aren’t I? Every night this week if I’m counting right. That tell you something?"
 
 Which she did not mean to sound anything like it came out, either, her anger betraying her true feelings. It was supposed to mean that she was sacrificing. It came out anything but that. 
 
@@ -7511,7 +8000,9 @@ _A win._
 
 A dance the Thai could play par excellence. Cat winked back at Koona as they both returned to the general conversation for the rest of the evening.
 
----
+
+
+
 
 ## Parallel Life
 
@@ -7595,7 +8086,9 @@ The other two joined, Jessica as a background dancer and Natalia shyly alternati
 
 Natalia’s family never moved again. Jessi was challenged but never defeated - in smile or in physical prowess. And Anastasia became, well stayed herself, generally known as Ana. Tucked away in time, in Omaha, waiting to be discovered.
 
----
+
+
+
 
 ## Ultimatum
 
@@ -7723,7 +8216,9 @@ _Fuck it._
 
 _Fuck this!_
 
----
+
+
+
 
 ## The Motley Crew and Thailand
 
@@ -7779,7 +8274,9 @@ Jessi pulled on her leather jacket and got on her motorcycle. Anastasia in her b
 
 ‘Insane’ thought Ana as she dropped her off. Natalia was of all of them the most successful and owned a small acreage at the edge of town.
 
----
+
+
+
 
 ## Ruminations
 
@@ -7805,7 +8302,11 @@ Cat had thought herself to be an open, honest and caring person. Who was this pe
 
 It was only noon and she needed a nap, her head felt like it wanted to burst apart.
 
+
+
 * **
+
+
 
 After a long nap, she decided to get out and take a walk, clear her head. 
 
@@ -7821,7 +8322,11 @@ She kept coming back to the moment when she had gazed at Koona last night. She c
 
 It was that moment when she came clear on everything. Because it was actually quite simple once she saw it. Life gets simpler when you stop avoiding and running. She laughed how maybe the messenger with the greatest gift was one in the same as her most feared outcome. She needed to see Mali. The sooner the better.
 
+
+
 * **
+
+
 
 Mali was looking forward to packing $er belongings, and finally the moment had come. 
 
@@ -7851,14 +8356,17 @@ It was like putting these clothes back on, knowing this direction once again was
 
 So the answer was easy and $he sent it off.
 
----
+
+
+
 
 ## The Free Fuck-You
 
-_Porque el vuelo de las aves se parece_  
-_Pero el viento que las lleva no es el mismo_  
-_"The flight of the birds appear the same but it's not the same wind that carries them."_  
-— Alejandro Lerner
+> _Porque el vuelo de las aves se parece pero el viento que las lleva no es el mismo_  
+> _(The flight of the birds appear the same but it's not the same wind that carries them.)_  
+> — Alejandro Lerner
+
+
 
 It felt like deja-vu except the past time had been real. As such felt $er life, bordering on the surreal. Just alone, floating around Thailand out on the limbs $he was treading. 
 
@@ -7946,7 +8454,11 @@ _Yeah… integrity and self-respect preserving anger._
 
 _Albeit the outcome being a little regret at times…_
 
+
+
 * **
+
+
 
 The time flew on the thirty minute walk to the park in $er own world of thoughts and feelings.
 
@@ -7972,7 +8484,11 @@ What $he didn’t realize - and wouldn’t for another year or so, is that hoopi
 
 _Yeah, as if being a guy for me is fucking life affirming…_
 
+
+
 * **
+
+
 
 Growing up she had pinned it as feeling like there’s like a million volts of electricity in her but running through thin wires. Causing gridlock. Those thin wires replacing the flowing and authentic conduit of life energy. Except that $he couldn’t remember ever feeling that original vitality but $he knew it existed. 
 
@@ -8016,7 +8532,9 @@ The curious thing is that blindfolded, as $he generally practiced, $he did not n
 
 It was as if $er body could feel a parallel existence and it already knew how good $he could be. Maybe $er body knew $he was a she. If $he had been willing to trust that more and turn off the mind, maybe this all would have come down sooner.
 
----
+
+
+
 
 ## Really.
 
@@ -8173,7 +8691,9 @@ _Realization crying._
 
 The kind of crying that happens when you’ve lived a lie and lost your bet.
 
----
+
+
+
 
 ## Home Again
 
@@ -8209,7 +8729,9 @@ Mali reached one arm up at a time, lengthening $er torso and neck, longing for t
 
 _Being this, and dancing, it makes me feel alive where nothing else does… or did._
 
----
+
+
+
 
 ## I Need Help!
 
@@ -8269,7 +8791,11 @@ Because $he was afraid, the world was always against $er and $he didn’t believ
 
 _The fucking problem is that the goddam pool always has felt cold._
 
+
+
 * **
+
+
 
 _So now what?_ 
 
@@ -8351,17 +8877,23 @@ Although Mali often had trouble remembering names, phone, street numbers and IP 
 
 Mali: _Hey K. Its Open Soul…_
 
----
+
+
+
 
 ## Karina
 
 Mali held her breath. Unsure if K was there, or would talk to $er. But the fact that the connection seemed to be working was encouraging.Seconds seemed like hours but then it came…
 
-**KO:** My god, is this who I think it is?!!
+```
+>>> KO: My god, is this who I think it is?!!
+```
 
 Then quickly followed by...
 
-**KO:** So you got my email?!
+```
+>>> KO: So you got my email?!
+```
 
 Mali exhaled and relaxed back in $er chair and smiled. 
 
@@ -8505,227 +9037,251 @@ _But I’m still at a complete loss to have done anything differently._
 
 Even if plopped back in the same place and time with her back then, $he still did not have an answer or a different path. Hence $er need for some help off this fence and reaching out for K.
 
----
+
+
+
 
 ## '"Normal" Trans'
 
-**KO:** Well?
-
-**KO:** Well??!
+```
+>>> KO: Well?
+>>> KO: Well????!
+```
 
 Mali stared back at the computer, not realizing how much time had passed, and almost in perfect response to $er own disorientation, another message from K...
 
-**KO:** Well???
+```
+>>> KO: Well??
 
-**Mali:** Sorry, got distracted ;(
+>>> MK: Sorry, got distracted :(
 
-**KO:** You were always the spacey kind weren’t you?
+>>> KO: You were always the spacey kind weren’t you?
 
-**Mali:** Yeah yeah
+>>> MK: Yeah yeah
 
-**KO:** Its been years, what the heck, how are you? Where are you? After that night at the DC it was like pretty soon after you vanished and not long after, my company lost the contract. It was all a little mysterious I was thinking. And then I had that dream a couple weeks ago. Hence my stalker activity to find you.
+>>> KO: Its been years, what the heck, how are you? Where are you? After that night at the DC it was like pretty soon after you vanished and not long after, my company lost the contract. It was all a little mysterious I was thinking. And then I had that dream a couple weeks ago. Hence my stalker activity to find you.
 
-**Mali:** You’re anyone to talk about mysterious, beautiful woman in black on a motorcycle. The entire cast of Night Rider rolled into one :)
+>>> MK: You’re anyone to talk about mysterious, beautiful woman in black on a motorcycle. The entire cast of Night Rider rolled into one :)
+
+>>> KO: Night Rider omg lol
+```
 
 _Aw Mali if you were only a girl._
 
-**Mali:** So, well, I'm in Thailand now. Chiang Rai.
+```
+>>> MK: So, well, I'm in Thailand now. Chiang Rai.
+```
 
 Something in K’s mind crystalized as if it had just solved a big puzzle from the depths of the unconscious,
 
-**KO:** Jesus. OMG. Dont tell me, you’re trans???!
+```
+>>> KO: Jesus. OMG. Dont tell me, you’re trans???!
 
-**Mali:** WTF?!
+>>> MK: WTF?!
 
-**KO:** Come on, ‘guys’ in IT there is like 50/50 that they are trans. And for girls like me, its 75/25 they like girls or are at least bi, and the rest, well they are probably just not very good at IT… bwahhahhah… evil aren’t I?
+>>> KO: Come on, ‘guys’ in IT there is like 50/50 that they are trans. And for girls like me, its 75/25 they like girls or are at least bi, and the rest, well they are probably just not very good at IT… bwahhahhah… evil aren’t I?
 
-**KO:** I must sound totally brash but reality is, to do this kind of work you are better at if if you can quickly enter and leave other possible realities. A flexible mind. You get it from having to break yourself out of the matrix. As well, code and debugging stuff, you have to imagine what ‘might be’ behind things based on everything you already know about systems and code and based on imagining what you don't know for sure but suspect. On a daily and often hourly basis we must throw away everything we know and see with new eyes. Now tell me, what do trans people have to do their whole lives until they wake up?
-
-**KO:** But Jesus… you’re in Thailand, the trans capital of the world, and you’re not on the freakin beach, far from it. And you’ve changed your name what I would say increasingly toward the center if not feminine. Reality speaks dude… uh… dudette ! The only thing you could up it with is being in Chiang Mai than Chiang Rai.
-
-**Mali:** Uh, Chiang Mai was last year.
+>>> KO: I must sound totally brash but reality is, to do this kind of work you are better at if if you can quickly enter and leave 	other possible realities. A flexible mind. You get it from 
+         | having to break yourself out of the matrix. As well, code and 
+         | debugging stuff, you have to imagine what ‘might be’ behind 
+         | things based on everything you already know about systems and 
+         | code and based on imagining what you don't know for sure but 
+         | suspect. On a daily and often hourly basis we must throw away 
+         | everything we know and see with new eyes. Now tell me, what do 
+         | trans people have to do their whole lives until they wake up?
+>>> KO: But Jesus… you’re in Thailand, the trans capital of the world, 
+         | and you’re not on the freakin beach, far from it. And you’ve 
+         | changed your name what I would say increasingly toward the 
+         | center if not feminine. Reality speaks dude… uh… dudette ! The 
+         | only thing you could up it with is being in Chiang Mai than 
+         | Chiang Rai.
+>>> MK: Uh, Chiang Mai was so last year.
+```
 
 Mali smirked. This was fun.
 
-**KO:** OMFG you are soooooo too trans!!!! Because the only other would be you’re a desperate old white guy looking for a 20 something GF. And you’re not old enough, too good looking and too much going for you to be that lame. And if you were I’d personally come over there and beat the crap out of you til you woke up :)
-
-**Mali:** I am. I’m here looking for a Thai bride.
-
-**KO:** You just want me to come there to rough you up.
-
-**Mali:** So sue me. I’ve a thing for strong women :)
+```
+>>> KO: OMFG you are soooooo too trans!!!! Because the only other would 
+         | be you’re a desperate old white guy looking for a 20 something 
+         | GF. And you’re not old enough, too good looking and too much 
+         | going for you to be that lame. And if you were I’d personally 
+         | come over there and beat the crap out of you til you woke up :)
+>>> MK: I am. I’m here looking for a Thai bride.
+>>> KO: You just want me to come there to rough you up.
+>>> MK: So sue me. I’ve a thing for strong women :)
+```
 
 K’s heart skipped a beat. She knew who she was but it felt good to hear. And for some reason it meant more coming from Mark… Mali. And she’d not admit it to herself but her feelings for Mark were always different. She’d rationalized like a close friend or sibling. But it was this combination of being seen for her strength but also as a human with feelings, few people came being able to get both in the same package.
 
 _Or maybe I’m choosing women who just want the image. Just want the dream. And then when they realize I come with emotions and needs too… well and my geek obsessions... downhill._
 
-**Mali:** Um, you know its so weird but I needed to talk to someone and you popped into my mind. It was without thinking.
+```
+>>> MK: Um, you know its so weird but I needed to talk to someone and you 
+         | popped into my mind. It was without thinking.
+>>> KO: You’re good at that - not thinking that is hahahah… but seriously, 
+         | your best gifts are not just your mind, you know that, right? I 
+         | can see that because I see how we’re different.
 
-**KO:** You’re good at that - not thinking that is hahahah… but seriously, your best gifts are not just your mind, you know that, right? I can see that because I see how we’re different.
+>>> MK: Yeah, thats why I need you. I need someone with a brain, a logical 
+         | brain because I’m kind of fucking myself lately :(
+>>> KO: Fucking yourself???!
+>>> MK: Not in the good way
+>>> MK: I have too much data in my system to sort through. I know I could 
+         | intuitively make choices, and of course thats how I got here already 
+         | and…
+>>> KO: Are you okay?
+>>> MK: So to speak, I think. But I’m coming to the end of my rope it feels. 
+         | I’m really conflicted and can’t break it. Gosh, what the heck am I 
+         | writing, as if you were a psychologist!
+>>> KO: You have no idea how you helped me that fateful night. Someday I’ll 
+         | tell you. I’d prefer it to be in person, though. And I would also 
+         | prefer to see you happy when you do come. You were never happy in 
+         | San Diego were you?
+>>> MK: I tried. There was so much good but no, I was conflicted there too. 
+         | Much worse. Just an earlier incarnation of whats going on now. 
+         | Shit, barely had anyone in my life since then. Things have gotten 
+         | better but I feel like a rice farmer. 
+```
 
-**Mali:** Yeah, thats why I need you. I need someone with a brain, a logical brain because I’m kind of fucking myself lately :(
 
-**KO:** Fucking yourself???! Do tell???
-
-**Mali:** Not in the good way
-
-**Mali:** I have too much data in my system to sort through. I know I could intuitively make choices, and of course thats how I got here already and…
-
-**KO:** Are you okay?
-
-**Mali:** So to speak, I think. But I’m coming to the end of my rope it feels. I’m really conflicted and can’t break it. Gosh, what the heck am I writing, as if you were a psychologist!
-
-**KO:** You have no idea how you helped me that fateful night. Someday I’ll tell you. I’d prefer it to be in person, though. And I would also prefer to see you happy when you do come. You were never happy in San Diego were you?
-
-**Mali:** I tried. There was so much good but no, I was conflicted there too. Much worse. Just an earlier incarnation of whats going on now. Shit, barely had anyone in my life since then. Things have gotten better but I feel like a rice farmer. 
 
 * **
 
-They had spend the past hour reacquainting along with Mali detailing $er life and decisions since San Diego... and now it was K's analysis which was coming to the front...
 
-**KO:** Remember one thing, whats inside of you is you. What you 'feel like doing' is you. I sometimes think most of the problems in humanity is that we think we can change certain things. But we cant. 
 
-**KO:** People, culture, our upbringings, society if you’re at all different try to fuck you into destroying yourself. Or compromising your integrity to fit in.
+They had spend the past hour reacquainting alonxg with Mali detailing $er life and decisions since San Diego... and now it was K's analysis which was coming to the front...
 
-**KO:** So we live in a world with so much free will and power, but at the end of the day whats in you is like ROM, hard coded shit. And if you’re rooted your rooted and it can affect the hardware level no matter how many reinstalls and patches you try, if the hard circuits are mutated or rearranged, thats how they stay. I think thats where the pain is: When we fight the hardware. 
-
-**KO:** Fucked up shit tries to tell us that we can change things… how we feel, what  - who - we want sexually. Gender too. Goddamn religions.
-
-**KO:** You know what is known so far about being trans? Its hardware baby, put on track by hormones, a long long time ago, en utero, before you were born. 
-
-**KO:** It’s not going away. 
-
-**KO:** We can hack around it… maybe I can help you with that. Maybe that's just what you need. I mean, I don’t want to presume anything only that its not right for you to be twisted up, conflicted, unhappy and so desssssppperattttee that you log on to a private chat server that you have not said boo to in years…
-
-**Mali:** I am sorry I lost contact. I actually thought maybe you hated me for what happened with the contract and all that.
-
-**KO:** Yeah, as if my world depended on the income from that! No, not at all. Heck it was Dell servers running .NET and Sql Server and that albatross of code you called an app. You think it made me sad to not have to respond to that anymore? Come on… I’m the best UNIX sysadmin anywhere south of LA.
-
-**Mali:** Won’t argue with any of that. But you do remember that IQ’s drop crossing the north county line, right? 
-
-**KO:** Jesus fucking yeah… ya know, I’d interviewed in SV and in LA but you know… what do you gain by joining that insanity when I have everything I want and need here in the desert?
+```
+>>> KO: Remember one thing, whats inside of you is you. What you 'feel like 
+         | doing' is you. I sometimes think most of the problems in humanity 
+         | is that we think we can change certain things. But we cant. 
+>>> KO: People, culture, our upbringings, society if you’re at all different 
+         | try to fuck you into destroying yourself. Or compromising your 
+         |integrity to fit in.
+>>> KO: So we live in a world with so much free will and power, but at the 
+         | end of the day whats in you is like ROM, hard coded shit. And if 
+         | you’re rooted your rooted and it can affect the hardware level no 
+         | matter how many reinstalls and patches you try, if the hard 
+         | circuits are mutated or rearranged, thats how they stay. I think 
+         | thats where the pain is: When we fight the hardware. 
+>>> KO: Fucked up shit tries to tell us that we can change things… how we 
+         | feel, what  - who - we want sexually. Gender too. Goddamn religions.
+>>> KO: You know what is known so far about being trans? Its hardware baby, 
+         | put on track by hormones, a long long time ago, en utero, before 
+         | you were born. 
+>>> KO: It’s not going away. 
+>>> KO: We can hack around it… maybe I can help you with that. Maybe that's 
+         | just what you need. I mean, I don’t want to presume anything only 
+         | that its not right for you to be twisted up, conflicted, unhappy 
+         | and so desssssppperattttee that you log on to a private chat server 
+         | that you have not said boo to in years…
+>>> MK: I am sorry I lost contact. I actually thought maybe you hated me for 
+         | what happened with the contract and all that.
+>>> KO: Yeah, as if my world depended on the income from that! No, not at 
+         | all. Heck it was Dell servers running .NET and Sql Server and that 
+         | albatross of code you called an app. You think it made me sad to not 
+         | have to respond to that anymore? Come on… I’m the one of if not the 
+         | top UNIX sysadmin anywhere south of LA.
+>>> MK: Won’t argue with any of that. But you do remember that IQ’s drop 
+         | crossing the north county line, right? 
+>>> KO: Jesus fucking yeah… ya know, I’d interviewed in SV and in LA but you 
+         | know… what would I gain by joining that insanity when I have 
+         | everything I want and need here in the desert?
+```
 
 Mali was alluding to their inside joke of long ago that "'ok' in Silicon Valley, kinda smart in LA, makes you a veritable genius in San Diego". They'd never pinned it down but to date but their working theory had something to do with the North County-Orange County line and a compulsory drop of IQ upon crossing it in the southern direction. The problem was minimal for those like Mali or certainly K who had a good level of intelligence to start. But to others the drop could take someone boarderline into being a breathtaking moron, as evidenced on the Pacific Beach boardwalk. An extra IQ hit was awarded it seemed to college age and especially those associated with fraternities in San Diego colleges. And douches.
 
-**KO:** So I said no and now I contract for both companies up there for about three times what they’d have paid me as an employee hourly.
+```
+>>> KO: So I said no and now I contract for both companies up there for about 
+         | three times what they’d have paid me as an employee, hourly.
+```
 
 Something was so fun and easy with this chat and Mali was enjoying it. Didn’t hurt that $he thought a lot of K and was simply elated to be talking like this with her.
 
-**KO:** Speaking of low IQ’s, are you going to tell me whats going on?
-
-**Mali:** Ok, so yeah, I am trans I think. But not a normal one.
-
-**KO:** Oh, that’s funny, not a normal trans… 
-
-**KO:** I ever tell you I’m not sure I’m a normal lesbian?
-
-**Mali:** Point taken. In a nutshell I fought it for many years. On and off, like binging and purging. Buying clothes, dressing then at some point getting rid of it all, going back to military workouts and trying to be a man…. 
-
-**Mali:** Hoping for the woman of my dreams. In fact I just did it once more here and it almost killed me inside.
-
-**KO:** You and the Crossfit workouts. You know they actually just made you look super gay???! I mean here you are this slender thing and then you put on all that muscle? Oh, and waxed. Like some runway FEMALE model taking steroids. She would look gay too :)
-
-**Mali:** Geez, you should have told me!
-
-**KO:** I didn’t know… maybe you WERE gay?! Uh, I would’ve had no problem with that! I didn’t know, I mean, aside from your body that screams female energy… but that could have been anything… and if I remember correctly it was I who came out to you during that time. Not that I intended that either.
-
-**Mali:** Well, I am then coming out half way to you now… It’s weird, I needed to talk to someone. Maybe you can help me some.
-
-**KO:** I’ve an idea I might be able. I’ll just have to tell my GF why I am sitting here on chat so late at night.
-
-**Mali:** Sounds like someone is pussy-whipped to me… like you need excuses for sitting at a terminal like 20 hours a day… you still doing that, BTW?
-
-**KO:** Long story. On kind of a leash. But yeah… on the hours…
-
-**Mali:** If I were you my body would be sooooo angry!
-
-**KO:** Well, if I were you my brain would be pissed… or what would be left of it after the normalizing lobotomy bwahahahahaa!!!
-
-**Mali:** You’re sooooo mean, you think I am stupid. Remember my friend which of us is sitting south of the north county border right now.
-
-**KO:** Oh no I am sorry. I didn’t make you cry, did I?
-
-**Mali:** Not telling.
-
-**KO:** Ok so whats the problem then, so you like women’s clothes, feel like a girl inside? Do you feel like a man at all, or ever? I mean, I'm not now intending to make any fun of you, but that night you hugged me, you were soft like a girl. If I had my eyes closed... God, it felt that good. You have no idea how high on the rebound list you actually were… as a guy hahaha! Of course I would never have told you that then. But now, maybe that helps.
-
-**Mali:** More than you imagine. I just had this similar experience here.
-
-**KO:** The ‘woman of your dreams’ one??? Spill it Mali…
+```
+>>> KO: Speaking of low IQ’s, are you going to tell me whats going on?
+>>> MK: Ok, so yeah, I am trans I think. But not a normal one.
+>>> KO: Oh, that’s funny, not a normal trans… 
+>>> KO: I ever tell you I’m not sure I’m a normal lesbian?
+>>> MK: Point taken. In a nutshell I fought it for many years. On and off, like binging and purging. Buying clothes, dressing then at some point getting rid of it all, going back to military workouts and trying to be a man…. 
+>>> MK: Hoping for the woman of my dreams. In fact I just did it once more here and it almost killed me inside.
+>>> KO: You and the Crossfit workouts. You know they actually just made you look super gay???! I mean here you are this slender thing and then you put on all that muscle? Oh, and waxed. Like some runway FEMALE model taking steroids. She would look gay too :)
+>>> MK: Geez, you should have told me!
+>>> KO: I didn’t know… maybe you WERE gay?! Uh, I would’ve had no problem with that! I didn’t know, I mean, aside from your body that screams female energy… but that could have been anything… You looked good! And if I remember correctly it was I who came out to you during that time. Not that I intended that either.
+>>> MK: Well, I am then coming out half way to you now… It’s weird, I needed to talk to someone. Maybe you can help me some.
+>>> KO: I’ve an idea I might be able. I’ll just have to tell my GF why I am sitting here on chat so late at night.
+>>> MK: Sounds like someone is pussy-whipped to me… like you need excuses for sitting at a terminal like 20 hours a day… you still doing that, BTW?
+>>> KO: Long story. On kind of a leash here. But yeah… on the hours…
+>>> MK: If I were you my body would be sooooo angry!
+>>> KO: Well, if I were you my brain would be pissed… or what would be left of it after the normalizing lobotomy bwahahahahaa!!!
+>>> MK: You’re sooooo mean :( May I remind you, my friend which of us is sitting south of the north county border right now.
+>>> KO: Oh no I'm sorry. I made you cry, did I?
+>>> MK: Not telling.
+>>> KO: Ok so whats the problem then, so you like women’s clothes, feel like a girl inside? Do you feel like a man at all, or ever? I mean, I'm not now intending to make any fun of you, but that night you hugged me, you were soft like a girl. If I had my eyes closed... God, it felt that good. You have no idea how high on the rebound list you actually were… as a guy hahaha! Of course I would never have told you that then. But now, maybe that helps.
+>>> MK: More than you imagine. I just had this similar experience here.
+>>> KO: The ‘woman of your dreams’ one??? Spill it Mali…
+```
 
 And so Mali and K chatted away for another an hour about the situation with Cat and how it had turned out. 
 
+
+
 * **
 
-**KO:** So I ask you again, what’s the problem?
 
-**Mali:** Look, there is a lot I could say. I am not like the trans women who go ‘I knew I was a girl from as far back as I remember’. I am more like, from as far back as I remember my body felt feminine... enjoyed it, felt soft, enjoyed being soft, of course super sensitive, longed for love intimacy, hated sports. But it was like I never questioned if I could be a girl. I did not know it was a possibility. Even so, I didn’t fit a box anyway. But the horrible thing is, I always liked girls, women still are the most beautiful to me. But its like, to have that I felt like - kind of still feel - I have to be a guy. To have the love, and still to have the relationship I've dreamed of, that by being and following what my body tells me more and more I am, the less chance of having any of it. I feel like I'm throwing away the only chance I have at the deepest dream and longing I have.
 
-**Mali:** So I feel fucked. I can follow my body and be myself and be seen as gay maybe and drive away any woman who would want me. Or I can try to keep being a guy. Which BTW isn’t going so well…
-
-**KO:** I don’t know if you realize that your words have your answer. But you cant see it. Literally.
-
-**Mali:** What, that I should just accept myself and hope for the best? I’m just not a flaming gay man, I can’t handle living and being seen as something I feel totally distant from.
-
-**KO:** No shit. You’re a freakin lesbian. Admit it, NOW. Forget about trans, that’s just a path, but not your romantic and sexual identity.
-
-**Mali:** Sometimes I like transwomen who still have… original equipment though :)
-
-**KO:** And your point is what? You ever been with a guy?
-
-**Mali:** Tried once or twice. Nice people, but was not a turn on. Felt nothing or worse, icky.
-
-**KO:** But you’ve been with a transwoman?
-
-**Mali:** The first and only time I’ve had breathless sex. It was amazing. After - and she had penetrated me - I felt so good, so myself. But she was hot, I mean more woman than many women.
-
-**KO:** And after, what happened… ah let me guess, you repressed it?
-
-**Mali:** Kinda sorta
-
-**KO:** Unbefuckinglievable
+```
+>>> KO: So I ask you again, what’s the problem?
+>>> MK: Look, there is a lot I could say. I am not like the trans women who go ‘I knew I was a girl from as far back as I remember’. I am more like, from as far back as I remember my body felt feminine... enjoyed it, felt soft, enjoyed being soft, of course super sensitive, longed for love intimacy, hated sports. But it was like I never questioned if I could be a girl. I did not know it was a possibility. Even so, I didn’t fit a box anyway. But the horrible thing is, I always liked girls, women still are the most beautiful to me. But its like, to have that I felt like - kind of still feel - I have to be a guy. To have the love, and still to have the relationship I've dreamed of, that by being and following what my body tells me more and more I am, the less chance of having any of it. I feel like I'm throwing away the only chance I have at the deepest dream and longing I have.
+>>> MK: So I feel fucked. I can follow my body and be myself and be seen as gay maybe and drive away any woman who would want me. Or I can try to keep being a guy. Which BTW isn’t going so well…
+>>> KO: I don’t know if you realize that your words have your answer. But you cant see it. Literally.
+>>> MK: What, that I should just accept myself and hope for the best? I’m just not a flaming gay man, I can’t handle living and being seen as something I feel totally distant from.
+>>> KO: No shit. You’re a freakin lesbian. Admit it, NOW. Forget about trans, that’s just a path, but not your romantic and sexual identity.
+>>> MK: Sometimes I like transwomen who still have… original equipment though :)
+>>> KO: And your point is what? You ever been with a guy?
+>>> MK: Tried once or twice. Nice people, but was not a turn on. Felt nothing or worse, icky.
+>>> KO: But you’ve been with a transwoman?
+>>> MK: The first and only time I’ve had breathless sex. It was amazing. After - and she had penetrated me - I felt so good, so myself. But she was hot, I mean more woman than many women.
+>>> KO: And after, what happened… ah let me guess, you put it in a box?
+>>> MK: Kinda sorta
+>>> KO: Unbefuckinglievable
+```
 
 There was a pause and Mali waited for more. 
 
-**KO:** So you’re one of us. Accept it. Fucking a beautiful woman who happens to have a penis… Shit I might do that too. Still feeling pretty gay myself here…
-
-**KO:** Just sayin…
-
-**Mali:** I wish I was. But I look like a guy, my upper body. I am not going to be a man with breasts and I am sick of everyone assuming I am gay or like guys. What lesbian woman would go for me?
-
-**KO:** Well, we can work with the first, for the second, you can guess how I feel about that too. So don’t even consider it a problem. Its their problem not yours. Take it from me - and heck from Cat, you’ve got the special sauce. Oh and lastly, why do you despise yourself so much not to believe yourself lovable AND being yourself?
-
-**Mali:** Its just that lesbian women, they would not be into me. They’re not.
-
-**KO:** Is that for you to decide? Or have you decided for yourself to shut off from this world so you can stay miserable and isolated, running to a terminal girl for help from the middle of nowhere.
-
-**Mali:** Uh…
+```
+>>> KO: So you’re one of us. Accept it. Fucking a beautiful woman who happens to have a penis… Shit I might do that too. Still feeling pretty gay myself here…
+>>> KO: Just sayin…
+>>> MK: I wish I was. But I look like a guy, my upper body. I am not going to be a man with breasts and I am sick of everyone assuming I am gay or like guys. What lesbian woman would go for me?
+>>> KO: Well, we can work with the first, for the second, you can guess how I feel about that too. So don’t even consider it a problem. Its their problem not yours. Take it from me - and heck from Cat, you’ve got the special sauce. Oh and lastly, why do you despise yourself so much not to believe yourself lovable AND being yourself?
+>>> MK: Its just that lesbian women, they would not be into me. They’re not.
+>>> KO: Is that for you to decide? Or have you decided for yourself to shut off from this world so you can stay miserable and isolated, running to a terminal girl for help from the middle of nowhere.
+>>> MK: Uh…
+```
 
 But K’s words were still coming.
 
-**KO:** In fact I have a friend who would be totally into you. But you’d have to jump some hoops not the least of getting over your fear of motorcycles and anything bigger than a 3 foot wave!
-
-**Mali:** How do you know that?
-
-**KO:** Come on, give me some credit… geez… girls talk!
-
-**Mali:** Damn, so some girl was laughing her ass off. I know, it took me freakin six months to catch my first wave, out there every day. I love the water but waves scared the hell out of me. Still anything over 4 feet and I ditch my board and dive.
-
-**KO:** You’re a peril to surfers everywhere and an apparent Pacific Beach legend… in fact two, the one in your own mind and the one that everyone saw ;) That said, my GF is calling me, for reals. Can we chat later or tomorrow?
-
-**Mali:** Sure, I’d really like that. And thank you, I'll probably read over this, you said some things for me to think about.
-
-**KO:** I hope so. Just know, I'm here for you if you need me. God knows I’ve been through it too and had help when I needed it. I accepted and came out in HS, pre-Ellen days you know… in a way like being transgender is now… 
+```
+>>> KO: In fact I have a friend who would be totally into you. But you’d have to jump some hoops not the least of getting over your fear of motorcycles and anything bigger than a 3 foot wave!
+>>> MK: How do you know that?
+>>> KO: Come on, give me some credit… geez… girls talk!
+>>> MK: Damn, so some girl was laughing her ass off. I know, it took me freakin six months to catch my first wave, out there every day. I love the water but waves scared the hell out of me. Still anything over 4 feet and I ditch my board and dive.
+>>> KO: You’re a peril to surfers everywhere and an apparent Pacific Beach legend… in fact two, the one in your own mind and the one that everyone saw ;) That said, my GF is calling me, for reals. Can we chat later or tomorrow?
+>>> MK: Sure, I’d really like that. And thank you, I'll probably read over this, you said some things for me to think about.
+>>> KO: I hope so. Just know, I'm here for you if you need me. God knows I’ve been through it too and had help when I needed it. I accepted and came out in HS, pre-Ellen days you know… in a way like being transgender is now… 
+```
 
 It seemed like K had gone and Mali was not ready yet to let go. But then a true final message echoed to $er console:
 
-**KO:** FWIW, open-soul? I knew it was you. That dream. You know how you know who people and things are in dreams even if they look different, right? Well, open-soul was you, I knew it. But she was female. So let that stew yer noodles…
+```
+>>> KO: FWIW, open-soul? I knew it was you. That dream. You know how you know who people and things are in dreams even if they look different, right? Well, open-soul was you, I knew it. But she was female. So let that stew yer noodles…
 
-Then the dreaded words:
+*** SESSION TERMINATED BY HOST ***
+```
 
-SESSION TERMINATED BY HOST.
 
----
+
+
 
 ## Terrasanto's Wonder
 
@@ -8769,63 +9325,61 @@ And then at some point between when she had first contacted him and now, there w
 
 She was not the first and surely far from the last of such a person he would see. 
 
----
+
+
+
 
 ## A Girl Who Knows a Guy
 
-**KO:** I know a girl who knows a guy who knows someone you need to see there… 
+```
+>>> KO: I know a girl who knows a guy who knows someone you need to see there… 
+```
 
 K’s letters forming words as they streamed in bright green onto the black screen, hijacking away from Mali the terminal $he was coding in. 
 
 _How did she do that???!_
 
-**Mali:** Hello to you too 
+```
+>>> MK: Hello to you too 
+```
 
 $he was not going to admit $he had no idea how K had done that. K was on another level $he knew $he’d never reach.
 
-**KO:** On Phahonyotin Road - you know that? On the way to the White Temple. Before the turn. Theres a market.
-
-**Mali:** WTF???!!!
-
-**KO:** Just humor me, okay?
-
-**KO:** Now, you’re going to drive and park at that market which is on the left side of the road, and to the right of the market theres often a group of monks standing around there. You might have to go back a few times. But look for the one with the face. Ask to speak to him.
+```
+>>> KO: On Phahonyotin Road - you know that? On the way to the White Temple. Before the turn. Theres a market.
+>>> MK: WTF???!!!
+>>> KO: Just humor me, okay?
+>>> KO: Now, you’re going to drive and park at that market which is on the left side of the road, and to the right of the market theres often a group of monks standing around there. You might have to go back a few times. But look for the one with the face. Ask to speak to him.
+```
 
 Mali hated it when guys would direct $er ‘now your going to…’ in unsolicited advice, but from K it was like kinda sweet.
 
-**Mali:** The one with 'the face'? Uh…
-
-**KO:** The guy says you will not mistake him. Whatever he means by that… is for you to live, thankfully for me.
-
-**Mali:** And, uh, why? I feel like monks want nothing to do with me how I am. I feel weird. Does he speak English?
-
-**KO:** Well then go and do your thing and feel awkward and stumble around in your kinder-Thai, I am sure that will endear him. Don’t have much confidence in yourself these days, do you?
+```
+>>> MK: The one with 'the face'? Uh…
+>>> KO: The guy says you will not mistake him. Whatever he means by that… is for you to live, thankfully for me.
+>>> MK: And, uh, why? I feel like monks want nothing to do with me how I am. I feel weird. Does he speak English?
+>>> KO: Well then go and do your thing and feel awkward and stumble around in your kinder-Thai, I am sure that will endear him. Don’t have much confidence in yourself these days, do you?
+```
 
 Mali would have to work on that one later. Was not the first time to hear that but $he was starting to get it more. 
 
-**Mali:** So really, who is this girl who knows a guy who knows ‘the face’?
+```
+>>> MK: So really, who is this girl who knows a guy who knows ‘the face’?
+>>> KO: You think I am just that kind of geek?  
+>>> KO: Heck, you are still freakin wondering how I just took over your terminal. 
+>>> MK: Uh…
+>>> KO: That was not a question.  
+>>> KO: So will you go?
+>>> MK: Anything for you sweetheart.
+>>> KO: Good. Write back when mission accomplished. 
+>>> KO: And stop calling me ‘sweetheart’, what will GF think if she sees? 
+>>> KO: Fighting for my life here.
+>>> KO: Bye.
 
-**KO:** You think I am just that kind of geek?  
+*** SESSION TERMINATED BY HOST ***
+```
 
-**KO:** Heck, you are still freakin wondering how I just took over your terminal. 
 
-**Mali:** Uh…
-
-**KO:** That was not a question.  
-
-**KO:** So will you go?
-
-**Mali:** Anything for you sweetheart.
-
-**KO:** Good. Write back when mission accomplished. 
-
-**KO:** And stop calling me ‘sweetheart’, what will GF think if she sees? 
-
-**KO:** Fighting for my life here.
-
-**KO:** Bye.
-
-‘SESSION TERMINATED BY HOST’ flashed on the screen.
 
 Mali contemplated for a second the fact that although knowing K was gay and the few other things $he knew about $er, $he didn’t know a lot about her life and felt a growing curiosity now that their friendship had renewed in a new ‘non-professional’ context.
 
@@ -8833,7 +9387,9 @@ $he felt the impulse, as was with strong people in $er life, to want to make K p
 
 $he’d never known K beyond this level of mysteriousness. But here K was, seemingly trying to help $er in earnest, even sending $er to do ‘weird stuff’ for $er own wellbeing.
 
----
+
+
+
 
 ## Doorstep
 
@@ -8897,7 +9453,11 @@ _But not what I want._
 
 _At all._
 
+
+
 * **
+
+
 
 “What are you doing here?” 
 
@@ -8953,7 +9513,11 @@ _Cat with that fucking precision engineered Japanese teflon surface, around anyt
 
 Fuck. She was far from made of stone. She reached up and took Cat’s hand and led her to the door, unlocking it and leading her into the bubble of comfort of her simple home.
 
+
+
 * **
+
+
 
 Cat had slowed and calmed down now with a cup of warm tea in her hand. She took a deep breath.
 
@@ -9011,7 +9575,7 @@ Koona smiled and made sure to meet Cat’s eyes fully. As if to say ‘get it, I
 
 “She’s someone I’ve been seeing on and off a few months, we’re also friends. I owe her better than to bow out.” 
 
-_Liar liar pants on fire. Flavor of the month. _If that.
+Liar liar pants on fire. Flavor of the month.  If that.
 
 But standing plans _were_ still plans. Something in her knew this was okay. If Cat wanted to stay - heck, if she did stay - that itself also meant a lot. And a twinge of jeopardy surfaced in her, in the hopes that Cat would be there when she got home.  
 
@@ -9035,7 +9599,9 @@ _Or if so it isn’t love, not if she’s coming back to me._
 
 _Jesus, Cat, stop!_
 
----
+
+
+
 
 ## The FACE
 
@@ -9147,7 +9713,9 @@ The meeting was clearly over.
 
 As they met eyes as Mali came to exit, $he could see beyond the doubt the light and fire in the monks eyes. Something $he’d completely missed because of his face. As much as his words, this moment indelibly seared a mark in $er heart.
 
----
+
+
+
 
 ## The Way Back to Love
 
@@ -9189,19 +9757,9 @@ Crossing the bridge into actual Chiang Rai proper, recognizing the need for food
 
 $he walked in and found a table a nice distance from the fan oscillating at the front. $he ordered a bowl of beef noodle soup. Hopefully it did not have MSG but that was something still far out of $er ability to ask for. Even if $he could remember the word, attempts at prounouncing it had never succeeded in an understanding. 
 
-The bowl was set in front of $er. After a few slurps of delicious salty broth, a song came on the radio… 
+The bowl was set in front of $er. After a few slurps of delicious salty broth, a song came on the radio… *[The Way Back into Love](https://www.youtube.com/watch?v=Czv03J32ho4)*.
 
-> I've been living with a shadow overhead,  
-> I've been sleeping with a cloud above my bed,  
-> I've been lonely for so long,  
-> Trapped in the past,  
-> I just can't seem to move on!  
-> I've been hiding all my hopes and dreams away,  
-> Just in case I ever need 'em again someday,  
-> I've been setting aside time,  
-> To clear a little space in the corners of my mind... \*
-
-A lump formed deep in $er throat. 
+The song caught her ear as does a special song once in a while. $he sat, slurped and listened. A lump formed deep in $er throat. 
 
 _What am I doing here in Thailand but this?_
 
@@ -9209,23 +9767,15 @@ _Stuck, alone… fighting for something and to find my way._
 
 _Buying time so that I might one day actually live and be happy._..
 
-> All I wanna do is find a way back into love…  
-> I've been watching but the stars refuse to shine,  
-> I've been searching but I just don't see the signs,  
-> I know that it's out there,  
-> There's gotta be something for my soul somewhere!  
-> I've been looking for someone to shed some light,  
-> Not somebody just to get me through the night,  
-> I could use some direction,  
-> And I'm open to your suggestions. \*
+*Living in a holding pattern of my own accord.*
 
 $er heart once again breaking open, but this time to something somewhere very deep inside. 
 
 In this moment $he knew it was over. $he was new.
 
-It was over. No more holding back or shame. 
+It was over. No more holding back, no more shame. 
 
-$he broke into full tears, bleeding them into $er soup in $er bowed head. It was all too much. 
+$he broke into full tears, bleeding them into $er soup in $er bowed head in $er hands. It was all too much. 
 
 This song, this place, the Face, what he said. 
 
@@ -9235,7 +9785,7 @@ _I hate and hate and hate._
 
 _I hate everyone around me. They’re all haters to me._
 
-_Haters haters haters_
+_Haters haters haters_.
 
 No wonder $he felt so awkward half the time when $he received only kindness from another. Worse after imagining that they hated $er too. No wonder, all of this. Made everyone a hater, but no, of course $he did not hate. $erself nor anyone. It was just ‘them’ that mocked, judged, criticized, made $er feel awkward. Not okay. All these people. All this life. Ever since the bullying as a child. $he emptied out, tears flowing and adding additional salted broth to the bowl. 
 
@@ -9243,11 +9793,11 @@ $he looked up. The middle aged woman cook and waitress looked concerned. $he smi
 
 The probably first place in the world to at least tolerate and even love their transgender beings. A place where the person talking gets to state what gender they see themselves. 
 
-_A place where at least if you’re made fun of, you’re made fun of for what you are and not what you’re not._
+_A place where at least if you’re made fun of, you’re made fun of for what you are and not what you’re implied not to be._
 
 _They might laugh at you for being transgender._
 
-_But no one calls you a ‘man in a dress’ like in the fucked up western world._
+_But no one calls you a ‘man in a dress’ like in the fucked up western world. Here you're just a katoey, end of story._
 
 It still pissed Mali off but…
 
@@ -9267,9 +9817,13 @@ $he was sure the woman had no idea what $he was saying but, nor really did $he. 
 
 _Just that this was big._
 
-\* Quoted song "Way Back to Love" by Adam Schlesinger
 
----
+
+
+
+# ~ HOPE ~
+
+
 
 ## Hello World
 
@@ -9277,7 +9831,9 @@ A few days later…
 
 Mali lay on $er bed, late in the evening before turning in for the day. Impulsed by feeling alone and the need to connect, $he started the terminal on her Mac and logged into K’s chat server. There was no answer. Well, then again, it was in fact fourteen hours earlier there, making it something like 7am. $he suspected that K probably went to bed not much earlier than that. Just seemed, $he didn’t know actually. 
 
-**Mali:** _Hi K… I know its a weird hour. I am going to leave this on for a bit, if you find it. Hope you’re well ;)_
+```
+>>> MK: Hi K… I know its a weird hour. I am going to leave this on for a bit, if you find it. Hope you’re well ;)
+```
 
 Mali dozed off, then slept. And slept.
 
@@ -9285,80 +9841,78 @@ When awaking, accidentally brushing the track pad, the black screen came back to
 
 On the screen were words now:
 
-**KO:** _Sorry missed you. I figure you have things to tell me! BTW, a long lost friend of mine, long story, but she’s coming to Thailand. I figure it might be good for you two to meet. Just a hunch :) Name is Anastasia. Bangkok airport 6:45am this Friday, Singapore 6045. Coming with two friends. But the two are going right to Phuket. I told Ana to hang with you if she could for a bit…_
+```
+>>> KO: Sorry missed you. I figure you have things to tell me! BTW, a long lost friend of mine, long story, but she’s coming to Thailand. I figure it might be good for you two to meet. Just a hunch :) Name is Anastasia. Bangkok airport 6:45am this Friday, Singapore 6045. Coming with two friends. But the two are going right to Phuket. I told Ana to hang with you if she could for a bit…
+```
 
 ‘Really’ were the words from Mali’s mouth re K’s initiative. But something made $er glad. $he was beyond lonely. 
 
-**Mali:** _Wow. Uh… you do take initiative for me don’t you :) But friends of yours are friends of mine. I just got back from BKK though! Do I have to go again?_
+```
+>>> MK: Wow. Uh… you do take initiative for me don’t you :) But friends of yours are friends of mine. I just got back from BKK though! Do I have to go again?
+```
 
 Message sent. Now to wait. 
 
 It wasn’t long though, after a shower and putting the rice cooker to heat up some home made oatmeal, flashing on the screen,
 
-**KO:** _You’re so nice. Really. But it would be so great. Ana is ridiculously cool. If she only liked girls I would be so in to her :) Well, I don’t actually know the deal with her. But we met in grade school. Well, ‘virtually’ met. She is this crazy free dancer and wanted to create this project with movement on the computer. She found me - I was only like 14 and totally into the $100 she paid me for like a billion hours of really cool programming. She actually won a prize and a writeup for it and I was included. She - well her parents - flew me out to the ceremony and we became close friends - as much as you could in a few days together in the 80’s, when long distance wasn’t cheap and all we had left were letters. But ever since we stay in touch once in a while. Its not close but she’s the real thing of real things. You know in this world…_
-
-**Mali:** _Say no more :) I totally want to see this program… still exist?_
-
-**KO:** _Yeah, if you have a TRS-80 with an 8” floppy drive, got the goods locked up in my vault somewhere._
-
-**Mali:** _Vault???_
-
-**KO:** _If you only knew! All kinds of shit in there people would not believe I kept. Like my first love the Apple II, when their logo was still pretty rainbow… hahaha THAT should have been a sign… not the boring gray piece of shit they have now… before UI’s were built for the shit-dumb user base of today…_
-
-**Mali:** _I have to visit you, really._
+```
+>>> KO: You’re so nice. Really. But it would be so great. Ana is ridiculously cool. If she only liked girls I would be so in to her :) Well, I don’t actually know the deal with her. But we met in grade school. Well, ‘virtually’ met. She is this crazy free dancer and wanted to create this project with movement on the computer. She found me - I was only like 14 and totally into the $100 she paid me for like a billion hours of really cool programming. She actually won a prize and a writeup for it and I was included. She - well her parents - flew me out to the ceremony and we became close friends - as much as you could in a few days together in the 80’s, when long distance wasn’t cheap and all we had left were letters. But ever since we stay in touch once in a while. Its not close but she’s the real thing of real things. You know in this world…
+>>> MK: Say no more :) I totally want to see this program… still exist?
+>>> KO: Yeah, if you have a TRS-80 with an 8” floppy drive, got the goods locked up in my vault somewhere.
+>>> MK: Vault???
+>>> KO: If you only knew! All kinds of shit in there people would not believe I kept. Like my first love the Apple II, when their logo was still pretty rainbow… hahaha THAT should have been a sign… not the boring gray piece of shit they have now… before UI’s were built for the shit-dumb user base of today…
+>>> MK: I have to visit you, really.
+```
 
 K felt a rush of warmth in her heart at the idea and smiled.
 
-**KO:** _Yeah?_
+```
+>>> KO: Yeah?
+>>> MK: Oh and the Face guy? I’m gonna save that one for when we meet in person.
+>>> KO: You’re sooooooooo mean!!!! But fair fair. So you found him???
+>>> MK: I can say thank you, for now. That WAS an experience that I still haven’t completely come to grips with.
+>>> KO: You’re welcome hahahaha… evil aren’t I?
 
-**Mali:** _Oh and the Face guy? I’m gonna save that one for when we meet in person._
+>>> MK: And let Ana know I am all hers. I can - will - come down to BKK for her or for sure if she wants to come up here she’s totally welcome to the bumkin land.
 
-**KO:** _You’re sooooooooo mean!!!! But fair fair. So you found him???_
+>>> KO: Tell you what and I would not tell you to do this if I didn’t know her. She’s so cool, just go meet her, make her day, ok? I actually think she will more than make your day. Wish I could come in fact!
 
-**Mali:** _I can say thank you, for now. That WAS an experience that I still haven’t completely come to grips with._
+>>> MK: You should! Anything for you sweetheart ;)
 
-**KO:** _You’re welcome hahahaha… evil aren’t I?_
+>>> KO: I toooooolllldddd you, don’t do that!!! And yeah… THAT would go over just great with my GF right now :(
 
-**Mali:** _And let Ana know I am all hers. I can - will - come down to BKK for her or for sure if she wants to come up here she’s totally welcome to the bumkin land._
+>>> MK: So which Friday does she get here?
 
-**KO:** _Tell you what and I would not tell you to do this if I didn’t know her. She’s so cool, just go meet her, make her day, ok? I actually think she will more than make your day. Wish I could come in fact!_
+>>> KO: Day after tomorrow.
 
-**Mali:** _You should! Anything for you sweetheart ;)_
+>>> MK: Seriously?
 
-**KO:** _I toooooolllldddd you, don’t do that!!! And yeah… THAT would go over just great with my GF right now :(_
+>>> KO: Can you make it?
 
-**Mali:** _So which Friday does she get here?_
+>>> MK: I’ll make it happen. Is all good with you and GF?
 
-**KO:** _Day after tomorrow._
+>>> KO:      Better. I… well… for when we meet in person we talk, it will turn into an epic here and you need to go out. But I am really really trying to make this work here and face my work ‘demons’ that are sooooo hard because I can’t tell them from angels._
 
-**Mali:** _Seriously?_
-
-**KO:** _Can you make it?_
-
-**Mali:** _I’ll make it happen. Is all good with you and GF?_
-
-**KO:** _Better. I… well… for when we meet in person we talk, it will turn into an epic here and you need to go out. But I am really really trying to make this work here and face my work ‘demons’ that are sooooo hard because I can’t tell them from angels._
-
-**Mali:** _I think I understand. I so look forward to actually seeing you again. You’re - speaking of cool people - rather amazing yourself :)_
+>>> MK: _I think I understand. I so look forward to actually seeing you again. You’re - speaking of cool people - rather amazing yourself :)_
 
 Another stream of warmth went through K. It felt nice. What the hell was that?!
 
-**KO:** _Ok, with that I will sign off._
+>>> KO: _Ok, with that I will sign off._
 
 SESSION CLOSED 
+```
 
-[NEXT]({{ site.baseurl }}/hating-on-the-road-to-bangkok/)
----
+
+
+
 
 ## Hating on the Road to Bangkok
 
-
-
-*The best day of my life is the day I am free to be myself as I am. The day that I have a smile wherever I go and laugh easily and often is a day lived at its fullest. I am complete. Game over, nothing else to seek. *
+> _The best day of my life is the day I am free to be myself as I am. The day that I have a smile wherever I go and laugh easily and often is a day lived at its fullest. I am complete. Game over, nothing else to seek._
 
 Mali had some years back penned these words into ‘his’ journal and still carried it, copying it to a new one when needed. It’s funny how it’s like we already know everything, the real end answer but we need help getting there.
 
-*Of course everyday is beautiful when you’re right with yourself. *
+_Of course everyday is beautiful when you’re right with yourself._
 
 *But I’m still hardly right with myself.*
 
@@ -9436,16 +9990,11 @@ $he continued to repeat it like a mantra as $he walked. Found a cab. Actually sm
 
 
 
-[NEXT]({{ site.baseurl }}/dress-shopping/)
----
+
 
 ## Dress Shopping
 
-
-
-* **
-*Shit already or get off the pot!*
-* **
+> *Shit already or get off the pot!*
 
 The long morning of constant movement of travel and getting situated *this time* in Bangkok now had decelerated from light speed to 0 in a moment once the last of $er belongings had been placed somewhere reasonable on the extensive counters that surrounded the room without other storage space. It was only mid-afternoon but felt like yesterday that $he’d walked with $er bag in tow down the rural streets of Chiang Rai.
 
@@ -9459,7 +10008,9 @@ Something magical also was going on with embracing $er apparent distaste for $er
 
 The hold Cat had on $er - and really the idea of keeping $erself as a man - had really seemed to relax. Almost overnight. Somewhere in between their last conversation and the Face’s lesson…
 
-*It’s as if I don’t even find anymore the feeling that drove me to play that game. Or to even want to.*
+*It’s as if I don’t even find anymore the feeling that drove me to play that game...*
+
+*Or to even want to.*
 
 The impulse whatever it was that drove $er *there* was apparently gone. Like a place you found once in a city but can not for the life of you find your way back to it.
 
@@ -9467,9 +10018,9 @@ The impulse whatever it was that drove $er *there* was apparently gone. Like a p
 
 *For anything. For anyone.*
 
-*There’s no one - nothing - there for me anyway. *
+*There’s no one - nothing - there for me anyway.*
 
-*My dream… love… relationship… could never happen being a man. *
+*My dream… love… relationship… could never happen being a man.*
 
 *Being a lie.*
 
@@ -9489,13 +10040,13 @@ And like everything that comes about in it’s own time, today was perfect for i
 
 It was the perfect combination of motivation, excitement coupled with anxiety that made things in life exciting.
 
-*I have no idea how this will go. I just have to try. *
+*I have no idea how this will go. I just have to try.*
 
-*I might just feel awkward… and that’s okay. It’s okay… at any point I end this experiment.*
+*I might just feel awkward… and that’s okay. It’s okay… at any point I can end this experiment.*
 
-*I might be laughed at even more. *
+*I might be laughed at even more. That's okay today.*
 
-$he had realized over the years that the best is to take the things $he felt inclined to do in respect to ‘dressing’ and try them. Without committal or expectation. To see how $he felt and go from there. $er entire progression toward the feminine had been in this way. Up to and including the use of hormones which $he was trying out now. Empirically determining who $he was. 
+$he had realized over the years that the best is to take the things $he felt inclined to do in respect to ‘dressing’ and try them. Without committal or expectation. To see how $he felt and go from there. $er entire progression toward the feminine had been in this way. Up to and including the use of hormones and the contemplation of further medical intervention. Empirically determining who $he was. 
 
 *And Anastasia is coming tomorrow.*
 
@@ -9511,7 +10062,11 @@ A mantra that gave power.
 
 And so Mali pulled $erself up from the yoga mat, arranged $erself and set out to make it happen. Deep inside in addition to the excitement was a sense of warm comfort even just thinking about it. 
 
+
+
 * **
+
+
 
 In Thailand, shopping malls are the extended living space of the population. Where the streets and outdoors are just a tolerated nuisance during the day, the malls are filled with all types. Filled is the key. Not overly crowded but definitely filled. 
 
@@ -9527,21 +10082,23 @@ $he chose the mall because its floor of boutique stores - actually more like sta
 
 *It’s like everything is for a reason… again.*
 
-It seemed so often since starting to ‘go to hell’ that nothing seemed to make sense or flow.
+It seemed so often since starting to ‘go to hell’ that nothing seemed to make sense or flow. But it was, she felt it now.
 
-Anyhow, the stores had the kind of clothes she knew would like to wear. Colors, fashionable, form fitting in great part, but that they were surprisingly reasonably price compared to the name brand stores on the other floors.
+*Just not the way the world wants me to flow.*
 
-*Definitely Thai style, this floor. *
+The stores had the kind of clothes she knew would like to wear. Colors, fashionable, form fitting in great part, but that they were surprisingly reasonably price compared to the name brand stores on the other floors.
 
-All black, floors and walls, and a maze-like complex of the halls shooting off from the center where $he stood in the midst of a cafe that specialized only in green tea concoctions and a Hagen Dazs counter. 
+*Definitely Thai style, this floor.*
 
-*Definitely my place. *
+All black, floors and walls, and a maze-like complex of the halls shooting off from the center where $he stood in the midst of a cafe that specialized only in green tea concoctions and a Hagen Dazs counter further out. 
+
+*Definitely my place.*
 
 Offsetting the blackness were the windows and contents of the little stores, radiating with color. So much more pleasing than the operating room white light bathed upscale stores on the other levels. Unconsciously to $er, this offered a kind of feeling of safety and protection than such other places, the too-bright lights exposing everything and so often filled with catty self-entitled women.
 
-Mali knew she was making up for lost time and that not everything she would buy would be perfect but $he wanted some sort of completion that day. $he needed some shoes, nice sandals perhaps, something she could walk a lot in, and black to go with whatever else she would buy. Then dresses. And if she found some nice earrings, jewelry that would be very helpful. 
+Mali knew she was making up for lost time and that not everything she might buy would be perfect but $he wanted some sort of completion that day. $he needed some shoes, nice sandals perhaps, something she could walk a lot in, and black to go with whatever else she would buy. Then dresses. And if she found some nice earrings, jewelry that would be very helpful. 
 
-*Oh… and bras. Shit… bras. *
+*Oh… and bras. Shit… bras.*
 
 *That’s gonna be the hard one.*
 
@@ -9549,21 +10106,27 @@ She had no idea how to shop for bras. Especially bras that were basically unnece
 
 So with a plan, and the necessary militant energy to make things happen, $he began the mission…
 
+
+
 * **
+
+
 
 “This for girlFRIEND?” the store clerk intoned innocently, smiling the always ebullient ‘hello smile’, the one that melts the heart of first time foreigner, who loses their mind like a puppy dog in this place as they don’t realize there are twelve other smiles the Thai people wear and they all mean different things, even this one.
 
 It was the game Mali was so used to playing in $er mind - ‘how in the world are others seeing me?’. The response of the other person or people played into and determined $er relation to them and in a way who $he was. 
 
+*I am who they see.*
+
 *And how I feel about myself.*
 
 *Oh yeah… I hate myself.*
 
-Of course, when $he was assumed as a man or gay, then $he’d play $er familiar favorite, *lets make a list of what’s wrong with me this time.*
+Of course, when $he was assumed as a man or gay, then $he’d play $er familiar favorite, *lets make a list of 'what’s wrong with me this time'.*
 
 So what was so wrong with $er today, at this juncture, that $he was assumed to be a man shopping for a girlfriend?
 
-*Fuck me. I hate myself. *
+*Fuck me. I hate myself.*
 
 That was the unfortunate thing, for an in-between person wanting to appear feminine. As a woman could go out without makeup, and even with combat boots and Mali’s exact outfit and still be read as female. 
 
@@ -9571,21 +10134,21 @@ That was the unfortunate thing, for an in-between person wanting to appear femin
 
 *I look like a fucking gay guy at best.*
 
-*What the hell is it? The bone structure of my face, lack of breasts, and the somewhat tense, rigid, a bit masculine way I think I still move? *
+*What the hell is it? The bone structure of my face, lack of breasts, and the somewhat tense, rigid, a bit masculine way I think I still move?*
 
 It was something that $he always fought with. As if $er body was still afraid and thus tense while another part of $er wanted to be free. Always at odds.
 
-“I’ll try it on, kaaa?”, Mali replied. $he felt less awkward in being adamant today. Actually, $he wanted this so much $he really didn’t give a shit right now about anyone’s attitude or perception of $er. And today it was not an option to walk out of a store with something $he wanted because of how $he was treated.
+“I’ll try it on, kaaa?”, Mali replied. $he felt less awkward in being adamant today. Actually, $he wanted this so much $he really didn’t give a shit right now about this woman's attitude or perception of $er. And today it was not an option to walk out of a store with something $he wanted because of how $he was treated.
 
 *Fuck you if you think you’re going to get in my way today.*
 
-*I’m going to make this happen. *
+*I’m going to make this happen.*
 
 “Ah, kaaaa,” the saleswoman smiled knowingly. No big deal. It was Bangkok. Ladyboy everywhere. Even farang ladyboy here.
 
 She gestured to the dressing room. As Mali entered $he sighed and shook off the situation.
 
-Leaving with two dresses, the next stop was easier. It was a kiosk that had these amazing long t-shirt material dresses. And also some more edgy stuff, leather and jewelry. This place was not a problem at all, the younger saleswoman getting who Mali was without missing a beat. 
+Leaving with two dresses, the next stop was easier. It was a kiosk that had these amazing long t-shirt material dresses. And also some more edgy stuff, leather and jewelry. This place was not a problem at all, the younger saleswoman was getting who Mali was without missing a beat. 
 
 Mali left there with a second bag full of another dress and some assorted inexpensive faux-silver jewelry.
 
@@ -9595,7 +10158,7 @@ Mali could feel and knew $er resilience was wearing thin. 
 
 But this was still going to happen. The inertia would not permit failure here. 
 
-The problem had been that although $er feet were within female range, perhaps to the upper end, $he was in Thailand, the land of the petite and not only that, $he had no idea how shoe sizes worked for anyone here. 
+The problem had been that although $er feet were within female range, perhaps to the upper end, $he was in Thailand, the land of the petite and not only that, $he had no idea how shoe sizes worked for women much less here. 
 
 “Measure feet ka?” Mali inquired.
 
@@ -9609,13 +10172,17 @@ Mali felt the remark as a bit snarky and that the woman wanted this strange andr
 
 *Not going to happen today.*
 
-After some trials and persistence, $he finally left with a pair of not ugly but not gorgeous practical type sandals in hand, the ones that had a strap over the front of the foot and one around the back of foot and ankle, way better looking than Birkenstocks and less outdoorsy than Tevas. 
+After some trials and persistence, $he finally left with a pair of not ugly but not gorgeous practical type sandals in hand, the ones that had a strap over the front of the foot and one around the back of foot and ankle, way cuter and less hippie than Birkenstocks and less outdoorsy than Tevas. 
 
-*They’d do for now. And heck, they’re comfortable! *
+*They’ll do for now. And heck, they’re comfortable!*
 
-*I’m done. *
+*I’m done.*
+
+
 
 * **
+
+
 
 After a few hours she was exhausted. Not from just shopping but as a woman. It had been a tremendous amount of psychic energy withdrawal from the bank that at the start of the outing was full up from the ecstasy of travel, all the growth in the past week not to mention anticipation of meeting Anastasia.
 
@@ -9625,7 +10192,7 @@ Mali sat in a daze. 
 
 $he’d treated herself to a green tea affogatto, a hot green tea with a scoop of green tea ice cream in it - this cafe’s answer to the coffee drinking world, and an excellent one at that. 
 
-$he watched the passing shoppers. Actually the feet of the passing shoppers, now with a sensitized awareness to shoes. $he was thinking about $er shoe - sandal - choice. 
+$he watched the passing shoppers. Actually the feet of the passing female shoppers, now with a sensitized awareness to shoes. $he was thinking about $er shoe - sandal - choice. 
 
 *I won’t deceive myself. I have not broken the shoe code yet.*
 
@@ -9647,35 +10214,4930 @@ Closed toed shoes… with or without a small heel…
 
 *Fucking witchy shoes. Why do women wear that ugly shit?*
 
-$he stared out at shoppers for probably half an hour more focusing on closed toed shoes… and could not find one example contrary of hot closed toed shoes. Although focusing on this one element of dress, $he had no question without anyone telling $er, what $he liked. 
+$he stared out at shoppers for probably half an hour more focusing on closed toed shoes… and could not find one example contrary to them sucking ugly. Although focusing on this one element of dress, $he had no question without anyone telling $er, what $he liked. 
 
 Turning to the thought of dresses. It had to be dresses for now. If anything she had learned, is that to compensate for indicators that say ‘male’ when someone looks at you, one had to stack everything possible in the other direction. So transgender women had to in essence do more than genetic women to have any semblance of passing - of being read as female, meaning enough elements were female that they tipped the brain and senses of the perceiver. She knew this from actual experience. 
 
 Before wigs it was all about clothes and makeup. That was an awful period $he chose not to dwell on. 
 
-*Ultra gay looking. *
+*Ultra gay looking.*
+
+*Queen.*
+
+*Way too fucking fabulous.*
 
 Especially when $he’d shaved $er head in hopes of appearing like Sinead O’Connor. Which didn’t work at all. $he cringed a little at the memory.
 
-Then the bandanas as a head cover attempt. Which more than once combined with his overly slender stature led people to ask if 'he' was sick. Some comedian at a show even called $er a pirate. Horrible.
+Then the bandanas as a head cover attempt. Which more than once combined with his overly slender stature led people to ask if 'he' was sick. Some comedian at a show even called $er a pirate. 
+
+*Horrible.*
 
 Then wigs, a step in the right direction but…
 
-Finally with the first hair transplant there was a feeling of being more ‘okay’ as is. A relatively female hair line. No more need for wigs and horrible bandanas, less makeup. It was the gateway to $er believing. And all this durring $er first visit to Thailand. Never the same after. 
+Finally with the first hair transplant there was a feeling of being more ‘okay’ as is. A relatively female hair line. No more need for wigs and horrible bandanas, less makeup. It was the gateway to $er believing, this happening durring $er first visit to Thailand. Never the same after. 
 
-The funny thing too, with each improvement in femininity - the hair transplants, the rhinoplasty - after each Mali would ask ‘maybe I did not need to do all this’ but forgetting all the steps $he’d already made -- and the benefits $he was receiving. Which only became apparent when, ignorant of such, $he would return to try male mode and each time feel progressively not right.
+The funny thing too, with each improvement in femininity - the hair transplants, the rhinoplasty - after each Mali would ask ‘maybe I did not need to do all this’ but forgetting all the steps $he’d already made -- and the benefits $he was receiving. Because $he was more comfortable. Which only became apparent when, ignorant of such, $he would return to try male mode and each time feel progressively not right.
 
 *Hua Hin. I don’t want to ever do that again, okay Mali?*    
 
 Mali shook $er head, looking downwards and smiled.
 
 
----
+
+
+
+# Dress Wearing
+
+Arriving back to \$er room,\$he hung up \$er new dresses with the hangers provided by the hotel and arranged the other items and accessories \$he’d bought on the nice white counter that extended from the wall.
+
+She’d ultimately walked out of the mall with two pairs of shoes - well sandals, three colorful and tasteful dresses, one aqua, one purple and a shorter black one, a pair of really cool sparkly silver earrings and a couple sports bras, she felt complete, having caught a second wind post-affogato.
+
+Instead of just letting it all go as \$he’d promised \$erself, chilling out, turning on a movie and letting the late afternoon turn to night, Mali stood there in one of the t-shirt dresses
+
+\$he’d bought - a nice gray one - over \$er new panties and bra, adding some earrings and the shoes.
+
+\$he glanced back in the mirror at \$erself, turning to see how
+
+\$he looked from the side.
+
+*Not perfect but not bad at all.*
+
+It was not unlike what Cat had given \$er to wear that night only a bit thicker cotton and form-fitting now.
+
+\$he felt warm inside as the next thought passed…
+
+*I will go out in this.*
+
+It was not a question but a statement. \$he glanced over at the clothes rack and the other colored dresses now there. This was...
+
+\$er room, \$er things.
+
+*Something so right about this*.
+
+A wave of wellbeing washed over \$er. Warmth \$he’d not felt in some time. Not since being embraced by Cat. And before that… who knows.
+
+*I could go out in this.*
+
+Mali stood there for a second as the imperative set in.
+
+*I’m going to go out in this.*
+
+*Now.*
+
+So \$he did.
+
+*And it was the biggest non-event of $er life. Except that… It was a non-event!*
+
+Arriving back at the hotel a couple hours later \$he felt almost like a different person. A different person than usually arrived back home after being out. The old person was always exhausted and trying to shake off and deal with all the negativity \$he felt from others.
+
+*This time I feel clear.*
+
+\$he had walked back to the street and up to stroll the park and then get some dinner. It was mid-evening and the Sunday crowd was still out en-masse, on the street and in the park. With the heat of the day gone, everyone was enjoying the sweet Bangkok evening.
+
+And Mali was just among them today.
+
+\$he felt \$erself standing and walking taller. More confident, and to what it felt, more gracefully. \$he was not sure if it came from the clothes or from knowing that in a dress \$he had to be at \$er best. In a dress there was nothing to hide bad posture nor sloppy movement. It was still evident in \$er own head
+
+Although to an onlooker even Mali’s ‘sloppy movements’ naturally held a grace that a good number of genetic women would practice to obtain.
+
+\$he actually found \$erself slowing down, smiling as \$he walked the circular path that went around the lake. Couples, the children playing, exercisers…
+
+After tiring of the park \$he strolled up through the still busy Emporium Mall, a brightly lighted place where there was nowhere to hide. The kind of place generally \$he didn’t care for, sandwiched in-between unwanted attention and so many pretentious self-entitled asian women.
+
+All the while, what was curious to Mali about this ‘first dress excursion’ was that…
+
+*Everything went smoothly.*
+
+People smiled or at least ignored \$er. No one pointed or laughed or seemed to fixate eyes, as \$he had been used to in her andro clothes. The food court staff too seemed more friendly and courteous.
+
+*What is this?*
+
+Fact was Thailand of all places is a rather gender polarized culture. Mali noticed even the lesbian couples tended to be in pairs of butch and femme.
+
+*So maybe its that… I’ve joined humanity??? At least here?*
+
+*Or maybe that I’m more confident in a dress? Or just tonight? Or maybe that I’m more congruent and not fighting myself?*
+
+Whatever it was, it was unexpected and a welcome surprise.
+
+*Perhaps the biggest one in years. Why did I wait so long?*
+
+\$he felt it in this moment, this x-factor of feeling feminine, not just inside but confidently in the world. It was something that on rare occasions came to \$er, such a feeling. But before Face, especially, the possibility of living in this feeling felt like an impossibility.
+
+*My femininity.*
+
+It wasn't something put on. It wasn't excessive, flamboyant or even fabulous. 
+
+*Just normal.*
+
+Having pulled \$her dress off carefully over \$er head and hung it up with its companions, \$he sprawled on the bed with \$er legs up on the wall, exhausted.
+
+Mali racked \$er emotional brain and couldn’t find a spark of the old nostalgia that for recent years had been the only impetus to try to be a man. Or to want a woman who wanted such. Something had shifted.
+
+In less than rational or very conscious manner, as a pre-bedtime snooze came over \$er the words came to \$er,
+
+*Now I think I’m ready for Anastasia.*
+
+
+
+
+
+# Anastasia
+
+It was pronounced "swanaput" airport to $er ear. In the English transliteration is was spelled Suvarnabhumi. Mali always stumbled on this weirdness every time \$he came here or thought of the place.
+
+*Either someone who knew little of English.*
+
+*Or some Machiavellian Thai who wanted to make a statement upon arrival that in Thailand foreigners would always be foreigners.*
+
+Given what \$he knew about the Thai culture and history, Mali had generally settled on the latter explanation.
+
+Anyhow, this was the newer and ‘nice; Bangkok airport. And the best thing was that it was directly accessible via the MRT and Airlink subway lines, unlike the older Don Meung airport which was more isolated and relegated one to taking a taxi.
+
+Mali had arrived on the train with a giddy feeling of excitement as it had dawned on \$er on the ride over how nice it felt to be meeting someone at the airport.
+
+*I’m the local in a foreign land.*
+
+\$he sat on a bench outside the big automated customs doors that every once in a while opened to free more travelers from captivity. She held a sign she had made with colored crayons and child letters as a strange mood had striken in the moment combined with encountering the right supplies at the 7-11 around the corner from \$er hotel:
+
+“Anastasia and friends :)”
+
+Yes, with the smiley. It was \$er answer to the serious limo and tour guide signs with simple black letters of their awaited guests.
+
+Having woken up at 4am to do \$er practice on the way to the airport, she was a little sleepy, which only set in now that \$he was sitting with nothing to do but wait. Clad in tank top, yoga pants and converses, but of course with makeup, some simple orange dangle earrings and a ring \$he’d bought at the mall. Not a dress and \$he’d debated it… but practice was practice and had to be done, and \$he was not yet confident to be doing it in a dress, much less in the Thailand night heat.
+
+Mali had never been on the receiving side of welcoming travelers, friends, whoever. And there was something so fun as being there to welcome someone and help them feel at home.
+
+After about forty-five minutes, a couple times checking to make sure the flight was still on time, and finally seeing that it had arrived, the big doors opened once again.
+
+A trio that emerged, the middle one a tall and muscular dirty blonde woman pushing a loaded chrome airport cart, flanked on the right by a brunette with short hair, with a good sized shiny orange duffel slung on her outside shoulder. She was turned and seemed to be saying something in jest to the blonde.
+
+But the main attraction to Mali was a tall woman to the left, with a little less brawn as her toned companion, more like a dancer but not the anorexic kind. But she was slender! What was it? She was poised, every movement - like the most agile and confident thing in the world, very feminine but not stupid feminine. Not the kind of woman who has the need to drape herself on a man, Mali decided.
+
+*In fact none of these three…*
+
+Still watching the third woman, who was turned, involved in whatever the woman on the right was smiling about, suddenly she seemed to have noticed someone near Mali, eyes widening, smiling, then waving. Her eyes had caught on the sign, as if reading a secret message encoded in the child letters, way beyond the meaning, her name, that they transmitted, on cue and with widening eyes made sure of it. Like a zombie possessed.
+
+Whatever was going on in the group was broken. She smiled and made a wave in a graceful arc of her hand. Zombie for sure. Not lost on Mali. A movement to remember. She hastened ahead of the other two toward Mali, approaching increasing her smile.
+
+And then she was in front of \$er. “Hi, I’m Anastasia - are you Mali?” *WTF.*
+
+Mali knew Anastasia was coming with two friends who were heading to the beach but it did not register in \$er mind that this could be them.
+
+“Mali?”
+
+Coming to and finally and slowly making sense of everything
+
+*Mali. Oh yeah... me!*
+
+“You’re Anastasia??!”
+
+The woman nodded. This woman was a knockout. Not in a stereotypical feminine way but with a strength to \$er. She had a strong face, just a bit androgynous in its angularity in the cheekbones and jaw. Less than shoulder-length hair. Maybe she was not for everyone, but for Mali, if she could be - if she felt to find a role model - it was this woman.
+
+Anastasia nodded,
+
+“Call me Ana, okay?” she smiled and drawled, belying her midwest origin rather than Paris, Milan or Tel Aviv… any of which such a woman could have easily come from.
+
+She had a bigger than life feeling to her. Like a celebrity who walked out of a magazine image.
+
+“My gosh K didn’t tell me how beautiful you are!”
+
+Ana smiled again and laughed, “so you’d prefer I’d brought my ‘B’ game, huh?”
+
+The moment at which Mali - despite \$he’d felt a wave of anxiety come over \$er at the prospect of this woman - knew in an instant everything was just going to be more than okay.
+
+*Besides, I hate myself.*
+
+Mali smiled and laughed \$erself, shaking \$er head, “No, no… no. I mean… uh…” \$he shook \$er head.
+
+“…I’m Mali” 
+
+“What’s Mali for?”
+
+“Just Mali. For now.”
+
+“You know what, I for some reason think soon you will have a different name soon. Is that weird for me to say?”
+
+*No.*
+
+*You could say anything and it would not be weird to me.*
+
+“Uh…”, as her friends approached Mali, still kind of lost, managed to spit out a “not really… the way things have been going” still shaking \$er head and smiling back at Ana.
+
+As her friends approached, Ana gestured, “Mali, this is Natalia,” motioning to the woman on the right with dark short hair. Mali smiled and the two reached out to brush hands. Ana continued, “and this, sorry Natalia,” she said smiling, “is my oldest friend, Jessi. We were next door neighbors as far back as I have any consciousness,” she smiled.
+
+Jessi let go of the cart and came up to Mali for a hug, releasing, she said “I am so glad you came to meet us and take Ana to safety for a bit,” almost unable to compose herself from what seemed to be pre-existing hidden inside knowledge, “in Patong there is no telling what’s going to happen!”.
+
+“So you two are going down there?”
+
+Mali had been to Patong the first time in Thailand. \$he knew first hand a bit of the wildness.
+
+She stopped in thought looking down, “You know, I hope both of you come down there and we can hang out. We will have cleaned things up there by then,” she laughed, winking at Natalia.
+
+“So you all have been traveling forever?” Mali broke in. “Yeah, since about two days ago,” Ana exclaimed, “cheapest tickets available, you know, about 40 hours in all. You should have seen us sleep at the Singapore airport. We thought they were going to eject us, we had a snuggle party on one of those comfy lounge chairs in the quiet area. We all had our leg up on each other like we were… well, you know. But we slept and woke and slept and woke. When any security came we had lookouts and signals and we would take turns snoring with an occasional snort if they got really close. Everyone was watching us! We entertained a group of Japanese tourists for about thirty minutes… I bet we’re on YouTube somewhere by now…”, Ana added, “What a love fest, we missed you Mali!”
+
+*Is she like this with everyone?*
+
+“So whats the plan, do you all want to sit and get something to eat, or?” Mali asked, “for me I am kind of ready for food or for a green tea latte.”
+
+“Well,” broke in Natalia, “this one,” motioning to Jessica, “and me, we have a flight to Phuket in about 90 minutes - so we have to pretty much get going. So its gonna be just you and the Tigger Princess here,” breaking into a smile knowing that whatever Mali knew about Anastasia, it was probably not about the Tigger Princess.
+
+“The *Tigger Princess*?” intoned Mali in disbelief locking eyes with a flushing Ana and then turning to Natalia.
+
+“Just saying,” Natalia smiled evilly at Ana, “She’ll have to fill you in on that. Well, heck, just hang out with her for a day and you’ll probably figure it out,” pausing Natalia asked, “So can you all come with us to the entry so we can get our plane? I am nervous, I hate rushing through security.”
+
+“Yeah, me too," squinted Mali, "I so often get to the airport like three or four hours early. I actually like hanging out and I hate hurrying. I am ridiculously anxious as it is.”
+
+“Somehow that doesn’t match up,” Ana broke in in a serious analytical voice.
+
+“Ah if you are the tigger princess, in a day then maybe you will figure me out too! I am a worrier.” Mali laughed always wanting to try out such an atrocious pun.
+
+“A warrior? Well that isn’t an anxious thing?!” Jessi interjected.
+
+“I come from a long lineage of people who contemplate and worry, that is. My Jewish heritage.”
+
+They all broke into laughter at the reprehensible joke. “I’m sorry, I hate puns and the people who make them drive me nuts.”
+
+“When I am done with you there is no more worrier in you sir-miss,” Ana promised, as they started walking with Mali leading the known way, “anyway what are you?”
+
+“I know what Mali is, Ana, and I’m not telling!” blurted Jessi. With any other people Mali would be uncomfortable and unsure but with this crew of out of \$er league beauty and warmth, and the fact \$he was included, the banter warmed her heart.
+
+Natalia pulling herself up to the front with Mali pulled on\$er arm in a whispering voice, “we discovered while having a few drinks last week that she might be into… ladyboys!!!”
+
+“Nooooooo! I heard that Nat!!!!” squealed Anastasia, “Good thing you both have a plane,” noticing they had reached the security entrance, continuing, “ah yeah, look, here is your captivity gate, go and be good little passengers. No more terrorizing cute stewardesses Jessi. And leave me and Mali to… ah… salvage whats left of our collective dignity. Okaaaaaay???!”
+
+With that the other two bowed, almost Thai-like to Mali and Ana as they stood back. Both smiled and waved.
+
+After the others disappeared through the large metal arch in the mostly frosted white glass wall, Ana and Mali looked at each other.
+
+“You’ll have to excuse my insane friends. They were sad to learn I wasn’t going to Phuket with them. But I think they approved now that they met you. It was weird how as soon as we made the plan to come to Thailand, K messaged me and told me about you.”
+
+“Coincidence?”
+
+Ana shook her head, she’d wondered the same thing multiple times already.
+
+“They seem fun.”
+
+Ana nodded, “totally, maybe one day soon you can come to Omaha and hang with the three of us… I think you’d have fun.”
+
+*So weird, why does Omaha feel so familiar to me?*
+
+“So what now?” Anastasia smiled almost seductively. 
+
+“Well, after that whats left but to get a room?!” Mali had been infected with the way of the group.
+
+Ana smiled and came closer, “You know, that does not hardly sound like a bad idea,” smiling, “I have a feeling we’re going to have just a little fun here. I’d like to at least see Bangkok. I’d like to go crazy in a park for a bit too. Before figuring out the rest of my life, the future and whatever else such supposedly demands!”
+
+“Go crazy in a park?” questioned Mali. 
+
+“Uh, yeah. K didn’t tell you???”
+
+“No, not really. All I know about is about a far too precocious software project involving dancing. Knowing K and if you are anything like her, it was probably borderline disturbing in complexity.”
+
+“Ah. Oh thats only the icing on the cake. Just wait, okay?
+
+We’ll have fun, I promise!” smiled Ana.
+
+It was such an amazing connection. Mali wanted Ana. But not like that. Well, yeah like that.
+
+*But it’s different.*
+
+
+
+
+
+# ~ AUTUMN ~
+
+
+
+# The Pumpkin Head
+
+The blond smiled. Blue eyes. Swedish. Legs forever. She was actually a model. Koona had scored.
+
+*I actually should give a fuck but I don’t. To be here and away from Cat.*
+
+*Fuck ten times over. I hate feeling this way.*
+
+Why hadn’t she just made an excuse? This wasn’t fair either to her date. And worse that the model had insisted on making the plans tonight. Koona always did that, arranged for the cars, reservations and whatever, and that added to the anxiety, feeling somehow out of control.
+
+*It feels like I used to feel… before…*
+
+She remembered her life up to a year ago. Kind of like never knowing what she liked or didn’t. Needing others opinions. Being driven around. Planned for. A voice that seemed perpetually stuck in her throat for some reason, despite her level of professional success.
+
+And then not.
+
+But tonight of all nights. Why was it that shit happens this way when it really matters?
+
+And little did she know, she had not been paying attention.
+
+“Where are we going?” She did not recognize well where they were. It was a bit weird. She generally had a good sense of direction. Oh well, she’d been distracted by other things.
+
+“It’s a surprise Koona,” her date smiled seductively that almost made Koona wince. Koona saw the driver smirk. Huh. What the hell?!
+
+“What kind of surprise?”
+
+“Well then, it wouldn’t be a surprise, would it?” She put her hand on Koona’s forearm and massaged it flirtatiously. Which normally… wouldn’t have been… repulsive at all.
+
+*Fuck. One hundred times!*
+
+Now she felt even more divided. It was actually reaching intolerable. How was she going to pass this evening with a straight face?
+
+*Straight face, Koona? Jesus.*
+
+They had been driving now thirty minutes in light traffic.
+
+Itself unusual in Bangkok. She could swear they were heading toward Chonburi.
+
+*Shit, she was just the flavor of the month dammit! This is unnecessary.*
+
+Not only that, it reeked of someone getting way more into her than she was. Cat aside. All of the sudden Koona felt sad.
+
+*How stupid.*
+
+*Maybe I should just come clean. Late than never.*
+
+It was like the universe and spirits didn’t approve of this journey. If her heart wasn’t screaming so loud then she might have actually heard these signs.
+
+They seemed to be getting on a rather long, dark, metal bridge. Another *what the fuck* moment in Koona’s mind.
+
+*I’ve never been here.*
+
+She had to make a decision. And it felt like her mouth actually made it without thinking.
+
+“I’ve got to tell you something,” and with those words, sealed her fate.
+
+It came abruptly mid one of Koona’s now rambling and awkward sentences as she’d started to try to tell her date… about Cat and needing to help her tonight. Which apparently her date saw through.
+
+“Koona she’s not your friend. You’re into her. I can tell.”
+
+*Oh shit.*
+
+*Fuck, one thousand times.*
+
+Koona opened her mouth but could not vocalize. Because the blonde was right, jealous or not.
+
+“Why did you even come tonight?” Koona had no idea all the trouble she’d been to - as a foreigner who spoke little Thai - to arrange this.
+
+They sat in awkward silence. Koona thought maybe the situation was blowing over with her date, which was probably just as well.
+
+“Stop the car,” the blond ordered.
+
+The driver shook his head, *not a good idea, not here.*
+
+“Just do it.” It was an order. The car stopped. There was no other traffic so it was in theory safe. For the car and its passengers, at least.
+
+The woman glared at Koona, “Get out.”
+
+Koona shrugged, eyebrows raised, “Are you serious? Fucking here? I mean…”
+
+Wherever they actually were. It was dark. There were no street lights.
+
+Whatever the impulse to try to talk and work this out ceased. She looked at this woman. There was fire in her now crazy eyes. It occurred to her that this woman probably tended to get her way with life. And in that moment being alone on the dark bridge, who knows where… seemed actually much more pleasant, not to mention safe, than staying in the car.
+
+*Back in control. Yes, staying definitely scarier than getting out.*
+
+The driver internally shook his head.
+
+*I’ve never seen a woman do this to another… It’s actually worse… for some reason.*
+
+Koona’s stomach dropped. Fuck. Well, probably actually better. Just get out and let her go. She’d find her way. She was tough. She didn’t deserve this but oh well.
+
+*Ah, maybe I do.*
+
+She slammed the door. The black Honda with its red taillights pulled a u-turn and started to head back where they came from.
+
+*Fuck. Ten thousand times now.*
+
+Koona stood in her jeans, boots and tucked in button-down shirt, her slender figure, illuminated by the western moon.
+
+With hands on her hips \$he stood, yelling in Thai “fuck you you creepy fucking pumpkinhead cunt”. Which of course came easily but surely her date wouldn’t understand a word, “where in the fuck were you taking me? Like a creep person, no balls wimpy cunt.”
+
+Then she stopped for a breath, fueling, and switching to English for good measure “and suck my dick fucking farang ki nok.”
+
+At that moment she realized how her mouth had grown, in part influenced with her more expressive English speaking lovers over the year. She smiled and cracked up, realizing this. No one from her past would ever believe this was the same Koona. Not to mention her speech being full of contradictions… a ‘no balls cunt’, ‘my fucking dick’. 'Farang ki nok'... a term she'd never used or cared to on anyone, 'bird shit foreigner', she feeling often as much as a foreigner often in her own culture.
+
+*Ha. Well, maybe I do kind of have a dick.*
+
+*Huh, so this is maybe what it feels like to be a guy.*
+
+Koona smirked to herself to add a personal insult to herself…
+
+*A Tom.*
+
+*But not bad actually.*
+
+She felt powerful. For a moment.
+
+The moon, either approaching or retreating from full shown three-quarters.
+
+*At least there is that.*
+
+It was in fact rather pretty out, Koona noticed as a tear fell.
+
+She felt bad. For Cat. For getting left - dumped - alone. Even for her angry albeit creepy date. Not her nature to want anyone to feel bad. It was a little scary too but it was a bridge and she could see clearly thanks to the moon in front and back and there really was nowhere anyone could hide out on it, with the concrete railings. In passing, she shook her head and let the tears come and sniffled. She noticed there were in fact street lights - only that they were off. Weird. But then again, outside of the main metropolis anything often tended to go in Thailand.
+
+*My phone!*
+
+Everything she could do with her phone went though her head as she went for it in her bag.
+
+*Call a car.*
+
+*Figure out where in the fuck I am. Call Cat!*
+
+No. That… would be embarrassing to explain. Her emotions shifted as she imagined, into a smirk, shaking her head. What a story!
+
+She fished again in her small satchel just to make sure. No phone.
+
+She tried again, taking out each item, still keeping her wits with the eerily deserted surroundings, checking the secret pocket it maybe could have gotten lodged.
+
+Nothing.
+
+*Fuck. One million, seven hundred and fifty thousand times. Could this have backfired any fucking worse?*
+
+She judged that the distance back the way she’d come was further than just going toward the other side, whatever that was. There were lights over there. It looked normal.
+
+*But Cat is not that way.*
+
+She set foot and started the walk. By whatever twisted logic, she headed back toward Bangkok main, toward Cat, albeit further and darker side.
+
+And she started to process things.
+
+*Shit. It’s not like I’m a player.*
+
+*This year has been… discovering myself, finding this in me. Not out to hurt anyone.*
+
+*Jesus.*
+
+The flavor of the month thing, just an emerging pattern.
+
+And partly too because a few of her girlfriends were been foreigners and had left her in a couple cases!
+
+No, she wasn’t a player. There wasn’t a bone in her body that wanted be such a way to anyone. And even given all that, no one could approach in a million years how she felt with Cat.
+
+*Maybe because we really know each other so well and have so much past together, but if so, so be it. Even better.*
+
+It was what it was. Flavor of the month, had entered her vocabulary and was all fun and games…
+
+*Until someone gets abandoned on a dark bridge far from civilization.*
+
+Koona cracked a smile and exhaled a single laugh.
+
+
+
++++
+
+
+
+As time and steps forward were made the truth of how she was feeling slowly materialized, she felt embarrassed.
+
+Koona nodded to herself in recognition.
+
+That was it. She had lied and told Cat this woman was actually a friend. Then she was kicked out of the car. Also the stupid fact that Cat was the reason she had been booted, before Cat herself had even said what she needed to hear from her. What Koona hoped had been on the tip of her tongue when her date showed up.
+
+*And what I know she needs to say before anything else.*
+
+*Before I will ever admit to her what I still feel.*
+
+And she was sure that by this hour the entire situation was over, was a moot point with Cat.
+
+So she did pass up several phone booth opportunities as she marched *hopefully* and purposefully toward home, willing her way.
+
+There was a point where she reached one of those typical Bangkok concrete boulevards that she also did not recognize. The sidewalk had been marked off for construction. She looked at the traffic.
+
+*Fuck, two million times now.*
+
+There’s no way anyone would see and avoid her if she stepped in the street.
+
+*Fuck the construction area two million to the n-th power and n = 2.*
+
+*Fuck them all.*
+
+She stepped over the yellow tape and was doing fine until, avoiding what looked like relatively fresh cement, stepped to the side, which she realized was mud as her boot sunk to its brim, the watery mud cascading over the edge and beginning to fill it as she forcefully lifted out the boot.
+
+Cursing *fuck* to another higher power, she made it to the end of the fucking construction zone.
+
+She continued to make her way down what she thought was the way.
+
+Passing another phone booth.
+
+But slight off-angled streets could disorient even locals.
+
+At times she walked several minutes, only finding a dead end. Turning around and back-tracking and trying another. Dogs barking at her, making her on edge and just a bit afraid.
+
+As then she saw what really really looked like the same phone booth and store as probably twenty minutes before. And street.
+
+*Fuck goddam one million to the power of ten fucking times.*
+
+She’d gone in a circle.
+
+*Fuck Bangkok. Fifty seven thousand nine hundred seventy one and a half times.*
+
+*Bangkok not even friendly to Thai people themselves!*
+
+
+
++++
+
+
+
+3:33AM. Cat looked at her watch.
+
+*Can’t sleep. Duh.*
+
+She as well couldn’t pinpoint the switch-overs that night. From anticipation, to the beginnings of despair, then thoughts of Koona spending the night or getting roaring drunk and being in the arms of that woman, then to sadness.
+
+*Ah… and now angry.*
+
+Cat pounded the arm of the chair absently in despair. It didn’t occur to her that Koona could be in trouble. 
+
+*Things were just going ‘too well’ for her.*
+
+*Fuck me for waiting so long to come see her.*
+
+Fact was in Cat’s mind, Koona 2.0 was super-competent to handle any situation she’d encounter. She had this kind of bigger than life way that still had not wore off to normal humanity in Cat’s heart.
+
+*Maybe never will.*
+
+
+
+
+
+# Snoutmark
+
+“I can’t even imagine Ana, are you overwhelmed already?”
+
+After a few minutes at the hotel just to drop their stuff, change clothes and freshen up, as both knew if they stayed any longer they’d never leave, here they were swimming in the humidity and surreality of afternoon on Sukhumvit Blvd. Upscale stores and large malls, street vendors accompanied by the smells of delicious food, tables of unknowable street vendor choices.
+
+The upscale and the beggar, proper cafes and restaurants punctuated with those infamous massage parlors.
+
+Ana’s eyes were everywhere. She nodded.
+
+“Uhuh…” she drawled lazily as her eyes fixed and head turned on yet another new sight, a place offering Chinese reflexology.
+
+“There are a lot of Chinese people here in Thailand,” Mali explained, “emigrated here, big part of Thailand’s prosperity.”
+
+Mali was in the light knee-length white dress \$he’d just bought, that caressed but not clung to \$er figure. It was the first time $he wore it and as \$he caught \$er figure in the passing store window, confirming it really was a good color and worked for \$er.
+
+Things felt really calm and natural for once in \$er life.
+
+\$he smirked…
+
+*Well doesn’t hurt also walking along with a tall gorgeous midwestern woman by my side.*
+
+*Some rare people make me stronger in myself than when I’m alone.*
+
+And \$he knew after even just a few hours with Ana that she was one of these people.
+
+*And there’s just something more congruent about me in a dress.*
+
+Since \$er shopping escapade the day before, it could be a fluke and needed more time but there seemed to be a shift, not just in $erself but seemingly in the world around \$er too. There was less pointing and laughter, less ‘noise’. It was not all gone but it was different.
+
+The dress would require a whole new level, to be and aspire to in poise and grace. The true facing of this femininity in $er. \$he was clear with \$erself that this was where the rubber would meet the road. The inner with the outer. Where tight jeans and a tank could be ambiguous, a dress was a statement.
+
+*This is who I am.*
+
+There was no running from the feminine identity in a dress. How could you?
+
+\$he hated constantly being referred to as male in the USA, or seemingly laughed at as a katoey in Thailand. In \$er head the laughter had always meant to \$er that \$he wasn’t making the mark or good enough to be seen as female. Not because \$he wasn’t meeting others cultural norms. Which could be one in the same here but also not. The laughter and interest $he assumed it was because \$he was seen as a man still.
+
+So dresses and bras were always held off from - because not wanting to look stupid or like a rigid man in womens clothing. It was an atrocious thought.
+
+So \$he’d really expected dresses to just make everything worse. But to the contrary, they seemed to give \$er power. For free, just by the act of wearing one. Confidence. Not perfect but a smile emerging that \$he’d held in so much.
+
+*Like my body can just ‘be’ more… move and be more organically…*
+
+The interesting thing was that in a dress, with \$er ‘upped game’, \$he had less anger and gridlock felt in \$er body. In fact, the act of wearing a dress seemed to change *\$er*.
+
+Automatically. \$he was simply *that much* different in how \$he felt in one. Even \$er neck felt more free.
+
+And once started, it would probably become one more thing on the list that would make it really hard to ever go back to ‘being a man’ and trying to have a ‘normal’ heterosexual/cisgender relationship with any semblance of a straight face.
+
+A dress was no more flirting with the fringe but actually deciding.
+
+*Well, and now add Ana to the picture.*
+
+Strolling down the street with this more than adorable woman…
+
+*Does not hurt at all…*
+
+As if reading Mali’s wandering mind, Ana broke in, “you know Mali, I suspect there is a lot more to you that even you don’t know.”
+
+
+
++++
+
+
+
+“Mali, I want to know about how you ended up here, of all places?!” Ana had whispered in \$er ear earlier during the thirty-minute subway journey from the airport, “That some bumpkin girl from Omaha ends up with the honor of your company being escorted through Bangkok?”
+
+“Tell you what, when we calm down, get rid of these bags and have a chance to relax, lets do that, okay?”, \$he counseled, adding, “anyway, I am afraid of causing you whiplash if I say something surprising and you unglue your nose from that train window too quickly,” \$he smiled.
+
+Anastasia had been dreamily curious the whole ride, head and body somehow twisted around and just about pinning her nose to the skytrain window most of the time, in between her just checking out everything and everyone around them.
+
+As Ana turned to look at Mali, Mali could actually see a snoutlike mark on the window, which she could tell also caught Ana’s eye as she broke into a stifled laugh. Given the almost library-like silence in the train, this required both of them significant effort to suppress. At which Mali at some point couldn’t help and released a snort which broke them open, more from the repression than anything else. They were both tearing and the other passengers just pretended not to notice the strange *farangs.*
+
+They had started to get to know each other walking through the airport and getting to the train. Ana had pleaded to forsake the comfort of a taxi so they could get a ‘real life’ experience in the metro. So they opted for for them to take the airport link line to the BTS skytrain to reach her hotel. Which made Mali smile inside as that’s exactly how \$he preferred. Felt more real.
+
+Ana kind of clung to \$er. It felt nice. Unaccustomed but strangely familiar. She didn’t have any apparent hang-up with physical contact. Or really any other contact, mental or emotional either. Not that she did not have boundaries. Mali saw how she was around the others in the airport and train. Almost shy. She was quiet, reserved and respectful. Different than Mali though, she had no problem asking a Thai woman who had smiled at them for the best BTS stop for her hotel.
+
+\$he had learned some things about Ana, surprisingly, that it was the first time she was ever outside of the USA. Practically Omaha.
+
+She also learned that Ana had broken up with her last serial boyfriend - and they were in her words ‘serial’ boyfriends - a couple months before, and that her two friends also had broken up with their significant others in the similar time frame. Given the interest and closeness that Mali felt to Ana it surprised \$er that \$er heart did not drop at finding out she seemed to like guys.
+
+\$he also learned that the trip to Thailand was decided just a week before, requiring all kinds of strings pulled for last minute passports. That she loved to dance. And witnessed her amazing smile, a face magic in the range of emotion that could pass through it in real time ongoing. Even in the matter of moments.
+
+And Ana seemed interested in being with \$er! It was less surprising after Cat, but nonetheless, the way that went had left Mali in the brief period since with questions and holes in $er self-esteem and hope was below \$er usual baseline. Mali in passing wondered if K was the glue here or something else…
+
+
+
++++
+
+
+
+“This is going to make me shake,” Mali turned to Ana after ordering, “and if it does its job, will make me very social… if its made right… Only time I ever read and post on my timeline on Facebook is after ingesting this stuff… Only works with milk in it and has to be hot…”
+
+So aside from some other light dialogs, here they were. Both tired but not willing to let go of the day. They had, on Mali’s lead both ordered the largest size green tea latte at the boutique counter in the same Terminal 21 mall, a few blocks from Ana’s hotel.
+
+“You’re very different. Very very different, aren’t you?” Mali looked directly at her turning from her view forward at the crowd, sitting next to each other on the nice padded bench with a small glass table in front of them.
+
+“Well, I know you’re different, you too!” she smiled back. Ana’s language was it’s own too at times it seemed and it kept showing and endearing Mali.
+
+“There’s something nice about being seen, recognized as special.
+
+Thank you.”
+
+“I know,” Ana sighed, “you know, people sometimes think I go to lengths,” smirking, “but you know, in the end, I realize I’m just being myself. I learned long ago that the only time it really hurts is when I go against what makes me feel alive, when I push instead of surrendering”, pausing meditatively for a few moments, drawing in the sight of the mall people again…
+
+“But what never ceases to perplex me is that doing this seems so foreign to so many people and this world, which is all effort, pushing and shoving,” smiling she reached and shoved Mali’s arm, “I mean, the things I do, people drink and go to bars, even drugs, to be able to even think about!” she laughed.
+
+“Is that so? Do tell?” Usually that would be Mali’s moment to say that yes \$he too was just like that. But for some reason that was no longer a fun game. \$he didn’t feel the need to *be somebody* for Ana.
+
+“You’ll see. It’s nothing bad. I’m just me. You’ll see. It’s just music and dance. I am really a very simple person. With a lot of energy, or so I am told,” smiling back at Mali.
+
+“Any friend of K’s has to be pretty amazing…” 
+
+“K… well…”
+
+“You know she’s a crush on you?”
+
+“Seriously??? I mean it’s been years. Since our project and we saw each other in person.”
+
+Mali caught a blush in Ana’s cheeks and decided to pursue it. “I’m guessing it doesn’t matter. You don't like girls?”
+
+At that comment Ana turned a bright crimson for just a passing moment, and given she was mid sip, snorted the tea out her nose, laughing.
+
+“Are you serious? Fucking awesome timing,” Ana looked out the corners of her eyes as she cleaned up her face.
+
+Mali was already curled forward in laughter with tears down \$er face.
+
+*Priceless.*
+
+“So what stuff do you do for exercise? You’re clearly in shape,” Ana changed the subject.
+
+“You know, I hoop-dance. It's really what has kept me alive. Well first for years music kept me alive through my growing up. In the last few years, with the hoop and music. There’s nothing like it for me. Especially when my neck releases, its like I am connected to all the joy everywhere, there’s nothing like it,” Mali shook \$er head then continued on the inspired ramble,
+
+“Its like my whole life is about opening my body. Which was a shell for so many years. I always felt there was more - more than what I saw with my parents and even what I felt. Its like there is something in me that knew that there was so so much more,” \$he paused for a second wondering but Ana was still with $er.
+
+“But my body, well I still have rigidity and tension but its so much better than before…” Mali decided to slow down, there was not enough air and… a pang of anxiety, the first of the day set in, that maybe as like with many when \$he explained what was close to \$er heart too easily, no one seemed to care so much and maybe Ana didn’t either.
+
+But it was short-lived.
+
+“I hate hooping,” Ana stated deadpan with a serious face which broke into a smile as she reached into her backpack and pulling out a portable hoop broken into eight pieces.
+
+“Seriously?”
+
+“I don’t leave home without it. So, then, we have a date in the park this afternoon?” raising her eyebrows hopefully along with a pleading smile.
+
+“If you’re still awake. I wouldn’t love to do anything more. Do you wear your music?”
+
+“Of course. iPod shuffle. I break all the others.”
+
+“No kidding. Me too. My last expensive one, was grabbed by my hoop and thrown into the East River in New York City, at least I couldn’t find it after anywhere.”
+
+Laughing, Ana returned, “New York, I love it. You lived there?! I’d love to be there.”
+
+Mali noted her words, *be there.* Not *visit* as so many people talk.
+
+“I know. The energy there for me is amazing. It makes me feel alive,” pausing as Mali contemplated, “you know, it reminds me of your energy, it reminds me of who I am, who I feel I can and want to be.”
+
+“Truer words,” Ana smiled. “Can I ask you something weird?”
+
+“Uhhh, would it even stop you if I said no?” Mali taunted, the matcha latte kicking in further.
+
+“I know. I’m like that. With people I feel comfortable with. But this is further. Is it okay?”
+
+“Sure. I kinda trust you too… well enough to share a hotel room,” Mali winked.
+
+Ana had offered her room to share as it was pretty huge and amazingly luxurious. Kind of place you get if you pay a US hotel rate for lodging in Bangkok. Mali saw that she clearly did well or at least liked to vacation nicely.
+
+Smiling almost too tenderly back, Ana began, “Maybe I can help you some…” as she put her hand on Mali’s.
+
+
+
++++
+
+
+
+Mali raised \$er eyebrows, “What do you mean?” \$he knew what \$he wanted it to mean. The touch of Ana’s hand brought Mali almost to tears. It was like the comfort and safety of \$er mother as a child, before \$he somewhere along the way lost \$er sense of wellbeing.
+
+*Warmth and closeness.*
+
+*What I’m always hungering for.*
+
+The conversation had already established an unusual level of intimacy in such a short time that there was an energy of complete trust between the two.
+
+Ana explained, “Well, you see, I am kind of, well, people say I am pretty good at the body. And whats under that. Well, you said you have tension,” she paused, resting her hand where Mali’s neck and shoulder joined, “the body for me is like the encoding of everything about a person - its like a hologram even of their mind, their emotions. I don’t know if it works that way for everyone but it works that way for me and apparently for the people who come to me.”
+
+Mali’s mind was shattering over the things in common they had.
+
+*Or rather different facets of the same stone.*
+
+So \$he could not help \$erself from another geek out, “I’ve been kind of on the same wavelength. But clearly behind you in application - I only work on myself. But I think there is something to balancing muscle tone and increasing symmetry that does wonders for a person, or soma as I like to call it - the whole being, not just a mind or a body,”
+
+Ana moved her hand and gently held just slightly pulsing massage on Mali’s neck as she continued looking intently at Mali speaking, “And I think that there are some general coordinated movements that soma’s, people, tend to get stuck in,” Mali felt both a little anxious and excited yet taking a breath in \$he smiled as they maintained their eye lock, ”so the muscles that correspond to these movements hold tension and don’t remember to relax… as if the brain and nervous system have forgotten they are contracted. By learning to regain control of them, one increases one’s aliveness. There’s much more, but peoples eyes tend have glazed over by this point…”
+
+*Fuck. Why can’t I control my mouth?!*
+
+But Ana’s eyes were not glazed at all.
+
+“You’re definitely lower level than me, I don’t think that granularly about it. But I’m kind of fascinated. I want you to help me understand this but show me, okay? I am actually really bad with concepts but amazing with geometric reality…”
+
+Ana released her hand from Mali’s neck and shrugged with her hands up, “Its my gift - and also why they assumed I was learning disabled growing up. I don’t process sitting in a fucking chair,” she hushed as if embarrassed adding, “Sorry. Certain things make me upset. Got beat up a bit as a child in school.”
+
+“I can relate. Sometimes I think my analytical side got built as a defense, an adaptation but not how I really am. I still fight it. Like computer work. I am great at it and it engages me but it also feels so frustrating and my body just hates it.”
+
+Ana wanted to get her point across still, in her own excitement, “So, for me, there is like, I see of a person, there is like a template of the best they can be - the best soma as you say it - the prototype. Maybe it’s like the perfect balance and symmetry you talk about. And then there is what we - many of us - settle for in life. Much less. Less of everything, health, feeling good, joy, bliss, expression, you know. Everything.”
+
+She took a breath, looking away for a second and then continued, her focus back on Mali, “So what I do is help people reconnect with that blueprint, their best. I don’t know how else to say it,” she continued.
+
+“And you, well, I see something and someday maybe you’ll know. But it doesn’t mean anything to say it. Only if you’ll trust me. Trust me as you trust yourself? I know - I see, I feel, how much you trust yourself, how you have struggled and fought to do so,” Ana was looking directly into Mali’s eyes with glassy tears building, “Yet fighting yourself at the same time, even still, a little bit, am I right?”
+
+Mali nodded, “I think it’s more than just a little bit,” smiling.
+
+“I have so much empathy for you. I can’t even completely imagine what you’ve gone through,” she paused as if catching herself, “Oh, and I’m sorry, I keep touching you and I don’t do that with most people, this is unusual for me…”
+
+“Its actually… uh… refreshing,” Mali also moving towards tears and feeling and sensing the impulse and the safety to reach to put \$er hand softly on Ana’s lower arm, did so.
+
+“I just, its weird but there - we - have some sort of resonance and affinity. You feel it too, right?”
+
+“Its shocking me, actually. Every word, idea. Its kind of like… I already know you.”
+
+“I know. It’s really nice. Shall we enjoy it?”
+
+
+
++++
+
+
+
+As they walked, Ana brushed Mali with her hand, “Can I step out on a limb?”
+
+Mali smiled, nudging her back, “no.”
+
+After a late room-service lunch and nap at the hotel, the new friends set out for the park. At a distance, two girlfriends walking to the park, one very tall and the other not so far behind, not uncommon in this generally upscale and fashion-conscious international area. Upon closer examination one could see Mali’s male conditioning and mascuinity of \$er face, and some unease with fully surrendering to feminine movement. At least that’s how Mali saw it.
+
+Undeterred Ana spoke, “so I sense that it might help you to feel your body and structure from within while you walk…”
+
+Mali nodded. \$he was always kind of seeing \$erself from the external point of view. Perhaps a protective mechanism. Less with Ana, but still.
+
+“So, see what works, focus on your skeleton, the alignment you have in awareness, or the movement, even your breath,” whichever of these is easier and helps you connect more.
+
+Mali nodded, and began working out the task as they continued.
+
+After another bit, Ana brushed up and held Mali’s forearm, slowing down to a stop, “So, for a bit, can we do this? I will walk in front of you maybe five to ten feet. You have to tell me when to stop or turn okay? But just don’t think but see the way I walk, connect to my body - my soma! - and make it yours, okay? Get it?”
+
+For many people that might have been vague instruction but it was perfect for Mali. It was almost \$er own language.
+
+“And, I’ll just once in a while look back or say things, okay? But just listen to and be with them, not need to talk or discuss, be one with feeling embodied, and feeling me, okay?”
+
+“Anything that involves feeling you is okay by me,” Mali teased and edged \$er shoulder to Ana in a little shove. \$he couldn’t believe how \$he felt no anxiety or wonder in flirting with Ana. It was totally natural.
+
+“We’ll see about that when we get to the park! I might embarrass you,” Ana sneered into a laugh.
+
+“You embarrass me? I will take the world’s scorn!”
+
+“If you only knew what you’re saying!” Ana retorted. And then added as a reminder, “Remember, you’re feeling inside of yourself, and feel me, inside me, as I move, okay?”
+
+Mali nodded.
+
+So they walked. Ana with the head start. Yeah, Mali thought to $erself, she *is* the Tigger Princess. No doubt. As \$he opened her senses to this poised being walking ahead, and opened herself to feeling, embodying her, as if doing so opened up a channel of non-verbal communication and words and corrections came to Mali.
+
+*Head up. Even if it causes your neck to go back and you feel like your throat is jutting out. Raise the crown.*
+
+*Lengthen, all the way from the bones of your feet, feel them, all of them as each foot falls and extend through them, through your whole body and poise your head…*
+
+It was easy instruction to follow her. Checking in passing windows Mali could see the correction. It was counter intuitive
+
+\- she had always tried to tuck her neck in hopes of lengthening it. It did feel like \$er throat was exposed but it wasn’t. For some reason \$he felt exposed, yet, this was what she’d been after for so long. In spite of everyday, almost every moment doing somatic work, Ana without words had corrected \$er years ahead.
+
+Surprise, surprise, the way to lengthen and poise was the exact opposite of what \$he had thought and now she started to see why. As it wasn’t the front of the neck that was jutted forward, although that is always as she appeared, if someone was going to analyze her. But it was that the back of the neck and spine muscles - extensors - were contracted. And Ana had just shown her to feel them and lengthen them, relaxing them.
+
+*Totally genius.*
+
+Ana turned and looked back, as if noticing Mali’s drifting analysis, “Are you still with me?” then like a little girl crooning “Are we there back?” Ana had a tendency to re-order words. But with so much time in foreign lands, Mali got it.
+
+“You caught me,” smiled Mali, “and no, keep going. You’re doing good. Just watch out for the mopeds that use the sidewalk as the overflow road,” as a moped came directly at Ana it seemed and she dodged it in vain - the driver knew she was there and swerved when necessary.
+
+“What the…” escaped Ana, turning to look at the moped and then Mali. 
+
+Mali smiled, shrugging, “Thailand.”
+
+Ana laughed, “come on, continue, okay? Grasshopper?!”
+
+Mali if was not already in love became sure of it with the spirit and way she made that comment. Kung Fu. She was the best. In that moment \$he wondered if Ana was *the one.* The one she swore she would never ever look at in vain or take for granted. The one who restores hope and innocence.
+
+They kept walking. And Mali refocused. Feeling Anastasia’s grace. Unshakable. Not a millimeter of contact of each footfall was without awareness.
+
+*Every footfall is your length, your poise, your embodiment of your stature, your beauty, your spirit, your love.*
+
+Mali knew at that moment if she could remember this, that it would be the end of the awkward. Feet and bones, a chain reaction through the body…
+
+*Every step causes oscillation to a side. And a flow, knee, hip, lower ribs, shoulder, neck, occiput, head. Flow through. Nothing requires effort. You are without effort.*
+
+They were not words to Mali, they were felt. This is what it felt to be Anastasia or so Mali imagined. Or a supermodel on a runway. The same that was always in \$er heart. The love for women was not just for them. It was for \$erself. Beauty, grace, the oscillation awakening sexuality, sensuality.
+
+*You are the Tigger Princess.*
+
+As if on cue at that silent message, Ana tilted around, turning her torso with her head and slightly diagonal with the most beautiful and playful smile, as if speaking to a third person “Yeah, she likes it! I can see she likes it!” eyeing Mali and gesturing \$er up from following.
+
+*She.*
+
+*Did she just say SHE?*
+
+Something stirred inside and then \$he let it go. Smiling back Mali hurried up to Ana, “hey perfect timing - here’s the park, on the next block,” pointing to the clearing among concrete, glass and metal to trees and a black wrought iron fence.
+
+“Coooooollll!” Ana grabbed around Mali’s waist, “You’re ready for fun?”
+
+In that instant Mali felt so inferior, as if Ana owned fun. \$he turned a bit tense in the neck and chest. Not lost on Ana, grabbing Mali tighter, slowing them to a stop, eyes locked, “I know who you are, and I know how amazing you are. What’s missing is you totally knowing and believing this.” She held Mali’s eyes until Mali broke the contact. It almost hurt and for whatever reason could not hold the gaze. Like staring into whom sees completely through you.
+
+But the words sunk like rocks into Mali’s stomach. Sending tears up on the way. And then looking back into Ana’s grey-blue eyes. Right then \$he noted their color. The same as \$er own.
+
+Releasing \$er waist and tugging on Mali’s arms, Ana voiced huskily “Mali, come on, lets go inside the park and sit for a minute, okay?”
+
+Once again there by the lake. Unbelievably Ana picked the same bench as Cat had on *that day*.
+
+*Coincidence?*
+
+*Maybe because it was shaded?*
+
+*This woman seemed to know everything.*
+
+Mali waited. \$he knew Ana was running the show. Regardless that this was in her first twelve or so hours in a foreign land.
+
+Ever.
+
+Mali had no idea except the power of what \$he’d just experienced. That this was just the start of such hands-on ‘in the real world’ embodiment and poise education from Ana.
+
+
+
+
+
+# Streetlight Silhouette
+
+
+
+“What the fuck?!” Cat said aloud to herself.
+
+It was going on 4am and \$he’d tired of waiting. More upset than worried. She’d already imagined and assumed the worst for herself and the best for Koona who was in her head somewhere in bed making love with her date. An image Cat had built that embedded a whole gestalt of emotions.
+
+She was just leaving the path to Koona’s building when she turned and could see a slender silhouette making its way under a streetlight a couple blocks down. Seemingly a feminine figure.
+
+Staring for moments as the figure made its way…
+
+*Koona?*
+
+Cat walked toward them. Aside from a limp, $he was pretty sure who it was. Half a block to go now and she was sure and waved to the limping, one booted Koona, the other boot dangling in her hand. Mud was all over Koona’s jean-clad lower legs.
+
+Koona’s nose was raised as if sniffing something atrocious. “What the fuck? Koona? Are you okay?”
+
+Koona nodded and projected a forced smile. She seemed to be in some pain.
+
+“Koona, what happened?”
+
+She shook her head. She hadn’t really prepared a statement, or thought through the implications of such. It was just that kind of night where everything had blurred together into a muddle, especially the last hour.
+
+“You’re such a guy. Fuck! Paying your Tom dues are you?” 
+
+“Tom?”
+
+*Fuck Tom and Dees. Ten thousand times!*
+
+Cat’s emotions then swung from the buildup of the evening, “You don’t care at all about me. You didn’t call. Just your fucking…”
+
+*Jesus Cat, just shut up. Shut up now. You came here… not the other way around. You’re going to ruin everything again.*
+
+Not that deep down anything had changed at all in how she felt for Koona. Only the desire to… open up, connect, take her in, felt flattened by the images she'd constructed in her head.
+
+*Maybe I’m just tired.*
+
+Cat was on empty.
+
+“That’s what you really think, Cat? Or do you want to know what *actually* happened?” Koona raised her eyebrows, words piercing like knives, which Cat could feel splinter her own skin, surrendering to them as she had no more will.
+
+
++++
+
+
+So as they stood under the street light, Koona started talking, recounting truthfully the whole evening, from the fact that the ‘date’ really wasn’t anything serious or a true friend.
+
+And how the reason she got dumped on the bridge is that she told her date about Cat.
+
+In the process of her speech Koona made the mental note to never fuck with Cat ever again. She may have to state her piece or maybe even put her foot down. But never another stupid game. Because she saw how this one went and it was quite disagreeable.
+
+“Cat, she was the Sweedish nazi bitch from hell!”
+
+“At least I know what to do if you ever decide not to treat me well,” Cat smirked, which made Koona feel like her mind was being read. But inside, knowing now the truth of the evening, she was just plain ebullient and overjoyed. It was her answer.
+
+She needed no more words.
+
+“So you got thrown out of the car by a blond supermodel from Sweden on a dark unlighted bridge?”
+
+“Yeah, pretty much,” Koona smirked, starting to return to her normal 2.0 self, adding for good measure “with endless legs,” as Cat gently slapped her arm.
+
+“Koona, you’ve become one tough bitch!” Cat was laughing. 
+
+“I called her a pumpkin head,” Koona stated proudly, then adding for good measure “farang ki nok,” as she shook her head, “can suck my dick…”
+
+“Pumpkinhead is for us, Koona,” Cat jabbed, referring to the fact that it was a derogatory word sometimes used for Asian people.
+
+“That’s why it’s so funny… do you think I’ve a pumpkinhead complex myself? It was the first thing that came out of my mouth!” she paused, remembering, something she’d never admitted to anyone, “Cat, the kids, at school, they’d call me that when I was little.”
+
+It broke Cat’s heart that such had happened to Koona, she’d not known. She smiled and putting her hands on Koona’s upper arms, pulling her in.
+
+“I felt so creepy getting kicked out of a car,” Koona lamented.
+
+Cat smiled, “You’re no pumpkinhead my friend,” giving her that one eye squint which Koona absolutely adored. Koona stunk but Cat did not care, she was far too cute and vulnerable in this moment not to embrace, and she continued “and sweetheart, *creepy* is not exactly the word that ever comes to mind when I think of you.”
+
+*Sweetheart?*
+
+Koona, still disoriented from the evening, had really actually not considered what was going to happen… back here. Well, since, before her own idiocy, the ball had still been in Cat’s court. But that power seemed to have now shifted.
+
+Cat embraced and hugged her, whispering in her ear, “So you walked through mud for me?”
+
+She could feel Koona’s body convulse in a chuckle, returning a husky, “Not just mud, Cat. I was chased by a dog. I stepped in it’s own shit, barefoot because I had taken the boot off to shoo it. It was like the whole thing… someone had set it up to laugh at me! I went in circles and dead-ends in strange dark areas of the city I’ve never been to nor ever want to go back. I walked by and heard a nocturnal pig farm… I surprised a gang tagging a building. Fuck me.”
+
+The moment gave Cat pause. Of the decision to leap. This could go really wrong… But…
+
+“You want me to fuck you?” Cat’s register dropped a sexy octave.
+
+It was time.
+
+Once again caught off-guard by the night, Cat could feel Koona’s involuntarily shudder.
+
+*Fuck me?*
+
+*Yeah Cat… A billion times and still not enough.*
+
+Koona pulled Cat in closer, tighter, willing her thought to reach Cat just as Cat put her soft lips at the base of her neck.
+
+Crazy. With all the women she’d always been the one in relative power it seemed. And at this moment, this evening, everything seemed to conspire to put her in her place.
+
+*Cat might be the one woman in the world alone who can do this to me.*
+
+*Who I’d let… trust…*
+
+*That’s a yes, Cat. I surrender.*
+
+Her body went weak and she hardly had the strength as she whispered, “I’d like that,” she breathed, “very much so.”
+
+*Hmmm… this has potential. Not Tom-Dee behavior. Maybe Cat isn’t stuck after all in the Tom-Dee thing.*
+
+*But I really have to find out… for sure. Because this time it matters.*
+
+Koona knew she could not create a life being cast into these hetro-emulative roles other Thai women created for themselves when pairing with another woman.
+
+
+
+
+
+# Going Crazy in a Park
+
+They sat on the bench only for a minute or two until Ana piped up, as she not so secretly really wanted to get to the business of hooping. It was the first time Mali had seen Ana with focused intent beyond just being in the moment and with \$er.
+
+“Look, its not that deep. You just need to own yourself... I think. All of the movement and postural stuff you focus so much on improving at a lower level, comes automatically from ownership at a higher level. Total love and acceptance of you. It’s not that you don’t but you actually know very little of yourself - and you greatly underestimate what's inside you,” Ana was lecturing but Mali was eating it up.
+
+“And of course, take that for what its worth, from a girl you just met a few hours ago” she blushed and looked down feeling a bit ashamed, “sooooo, for the real business here, shall we?” raising her eyebrows and motioning to a fifty foot or so cement area that bordered the northwest side of the lake.
+
+Mali smiled. \$he had already owned that area on a few occasions.
+
+“Look, I don’t hoop - or do anything for that matter - for show. I do it for feeling. For aliveness. You get it?” Ana explained as they walked.
+
+“I know, me too. Its all I’m after. Although I think I go beyond my abilities and then it gets tense. That always feels bad.”
+
+“Yeah, I suspect it’s part of owning yourself.”
+
+“I’ve gotten better, in the last year I reel myself back to make sure I am doing everything from softness. It always gets better if I center there...”
+
+“Well then my friend, lets see what you’ve got,” Ana dropped her bag a few feet from the lake as they had now made their way over, pulling her hoop pieces out, started putting them together. Mali followed.
+
+Mali’s were four piece gold and purple, the colors of Thailand, chosen on purpose looking at the billboard of the SCB Bank of Thailand with that pretty color compliment outside of \$er hotel room during recovery from \$er surgery in Chiang Mai the year before.
+
+*The gateway drug. Made me think of what might be possible.*
+
+It was really after that fateful procedure, a major hair transplant that so much of this forward movement had begun. And embodied in the magic of \$er first months in Thailand ever. \$he would never forget the wonder if with surgery, starting at those colors, that \$he had crossed further to the dark side. \$he was not \$ure where \$he’d be, and certainly not even this far along without Thailand.
+
+*No more wigs, no more bandannas.*
+
+A really fortunate result, reversing the ravage that testosterone and its derivatives played with the hairline. The less than minor miracle to Mali had of course endeared \$er surgeon to \$er.
+
+*Hope*
+
+Anastasia carried three ultra light 33” collapsible in eight pieces each. Ana’s hoops were purple, pink and white twirled. Perfect for a hot, down-to-earth midwestern girl.
+
+*Or the lesbian flag.*
+
+“Hey Ana, that’s the lesbian flag colors right?” 
+
+Ana smiled ticking her head, “Dunno, are they?”
+
+They were colors that complimented her person, regardless, including her dark brown dirty blonde hair combination in abundance that clearly would never need transplantation to show its feminine splendor.
+
+Hoops assembled, headband for hair and the iPod. Bandanna for blinding.
+
+“Don’t blindfold yourself today, okay?” 
+
+“Do you blindfold?”
+
+“Yeah. And its good. Great. But today - to own yourself - your eyes must connect. Let me see you. The real you,” she smiled, paused and added, “and stay with me, like on the walk, okay?”
+
+Mali nodded eagerly and put on a smile. With anyone else, $he would be feeling uneasy with how Ana talked to $er, but for some reason Mali instinctively trusted her and sensed her as a teacher. Someone $he wanted to surrender to and learn from.  
+
+*This is going to be an experience.*
+
+And it was. They danced, alone and connected. With eye contact. It was easy. Not like when Mali had hooped with others, where it always felt weird like people had motives and showing off.
+
+*This just feels like… I’m on my own… but better!*
+
+Even when Mali left Ana alone for a bit \$he laughed to \$erself,
+
+*Hmmm… 'going crazy in a park'… only as much as I am myself.*
+
+The fact was to all others it just looked like joy. And in this world that is so withdrawn and serious, children aside, that can seem unusual. Even crazy.
+
+*Probably much more so in places like Omaha.*
+
+Ana poured in more instructions that seemed telepathically to reach Mali’s awareness. Like on the walk. Being inside, feeling, yet connecting, but from inside.
+
+*See me, open your eyes, even when you turn, keep your eyes on me. I’m your structure…*
+
+Those were the instructions.
+
+*Feel me.*
+
+And \$he could. Easily, effortlessly. Irresistibly.
+
+*Like you want to never let go of the feeling.*
+
+\$he felt more connected and alive than ever. Like new fun… and optimism had arrived.
+
+*Hope.*
+
+After about thirty minutes Ana came over, playfully pushing Mali’s hoop into a downward spiral orbit irreparably to the ground, “I’m beat!”
+
+“**You’re** beat?,” Mali smiled, “I’m shocked.” Stopping, walking close to Ana, \$he asked “So what do you think?”
+
+“I think I am tired!”
+
+“Thats not what I meant. This outing was all a big deal, wasn’t it?”
+
+Ana pulled Mali in close, an unusual public embrace in Thailand where at the most couples would hold hands.
+
+*Couples?*
+
+Ana inclined just slightly up to Mali’s ear and whispered, “What I think is that you spend your life seeing and living from others outside you. Except what I just saw - with the hoop. You become whole and who you are. You’re a genius there. Soon, you can be more of that, with everyone and everywhere. Trust me.”
+
+Ana knew things. But also knew something else, 
+
+“We’re very alike.”
+
+“I’ll take that as a compliment.”
+
+“You should. I should too,” she smiled, “Now can we go home?” Mali laughed at her persistence and sincerity. Even the boundless energy of the Tigger Princess had its limits, apparently and \$he was actually glad. \$he had not had time to think of anything beyond holding on to the day for dear life, but the idea of spending the evening with Ana…
+
+*What is really going on here? What is this?*
+
+“Pretty pretty please, can we go now?” Ana hopped like a young girl. Well, she hopped like herself. She had never lost that innocence, as it appeared to Mali.
+
+“Okay. Why don’t we pick up food on the way back? Because I’ve got the feeling that once we enter the hotel its game over.”
+
+“Agreed,” Ana affirmed with a big smile and angular nod of her head, smiling \$he took Mali’s hand, “come on, lets get packed up!”
+
+
+
+
+
+# Secrets
+
+Koona, freshly showered and in a light yellow burlap cotton kimono, emerged.
+
+True to her background, Cat had a pot of Japanese tea with two red and black cups on the table. Steam was still rising from the pot.
+
+Koona felt chills of warmth inside.
+
+*Could get used to this. Koona… shhhhhhh!*
+
+“I thought I was supposed to get a beauty treatment first,” she smirked, batting her eyes and making a bad joke, knowing that Cat always provided tea at the clinic.
+
+Cat was sitting on the far end of the couch as Koona plopped herself down, angling diagonally towards Cat, tilting her head and just looking at this beauty. Who had hung out all night waiting for her.
+
+Still, though, Cat had not said it. Although she’d almost got there before she left on her date, and had said so much more in just being there for her tonight. And not to mentioned what happened under the street light.
+
+*So fuck it.*
+
+Koona reached placing her hands on the side of Cats upper arms and pulled her in. She knew there were tears but now she wanted to pour herself every drop into Cat. To meet them with hers. The same tears perhaps which she had cried over and over in the past year despite whatever lover she happened to be with at the moment.
+
+Cat began to speak…
+
+“Koona, I love you. I’ve always loved you. Like that. Like the way you said you love… loved me. I even told Mali - she was the first to know. It didn’t matter if I’d already lost you, it’s just the truth. You were right, I’ve been a horrible person. I don’t want to be like that anymore. I already feel it - all last week - you make me a better person, I’m stronger with you, not to mention I love every minute I get to spend with you…”
+
+“And I was so screwed up… I knew I felt something at the pool but couldn’t admit it. I needed to show that I liked men. That’s why I pushed you away. You came too close. I’m sorry… I wanted… I couldn’t… embrace how you wanted me to then… We were both Dees too…”
+
+*Both Dees huh? What about now?*
+
+But the floodgate of words had been opened with Cat and she continued, “I’m still confused. But one thing I know,” Cat paused, sucking everything in, looking straight ahead instead of at Koona to avoid the pain she expected back,
+
+“I love you. Even if I don’t deserve you or you don’t anymore.”
+
+Silence and stillness. Koona did not retreat or come closer. Or even breathe, it seemed.
+
+Paralyzed. Both of them holding their breath.
+
+Cat held her head and eyes away from her bracing for the worst as her heart once again began to split itself preemptively in half. She felt Koona’s hand on her jaw pulling her back.
+
+Her eyes looked intently back at her own. She was smiling.
+
+Cat’s brows arched in confusion. 
+
+“Love.”
+
+“What?”
+
+“You said *loved…* how I *loved* you. No Cat. It’s how I love you. I love you. I don’t care. To me you are…”
+
+“But I understand I fucked everything up and now there’s no hope maybe…” irrational lack-of-sleep tears were coming over Cat.
+
+A warm smirk filled Koonas’ cheek, recognizing her friends state as she reached to put a gentle finger over Cat’s lips.
+
+“You really want to believe what I have for you is that fragile? Much less, everything I’ve ever wanted?”
+
+With a final gaze, she reached up to hold Cats’ face in her hands, pulled her gently to her where they met in the softest yet most full contact kiss either had ever experienced.
+
+As they parted, finally, Cat was lost in bliss, but she was not done, but only spoke more softly, “It’s like you created this home for me, so I’d remember. You healed me and changed my life that night, starting to unravel this horrible facade I’ve been, with what you created here.”
+
+Koona smirked, lightening the mood “I told you to just check it out,” and turned a throaty laugh. Probably the cigarettes, thought Cat. But it was an ever sexy sound and feeling.
+
+She met her lips again to Cats unequivocally, with comforting and encompassing force. Cat’s tears and muted crying in the kiss intensified with the inpour, the feeling of being held, encompassed, loved, cared for, connected with as she surrendered to her desire on every level for Koona.
+
+Finally free.
+
+“I love you Koona, you know, I’ve always loved you,” Cat, finally pulling away\` shook her head, “It always felt bad, you know, never felt right when I was seeing someone. Or you were. I just was stupid and rationalized it. But now I know. One-hundred percent,” she paused, reflecting on the time since they re-acquainted, “You know, even when I saw you again a few weeks ago, from the first moment, every time I thought about or had a glimpse of what you’ve lived this year, I felt kind of jealous… also envious,” she shook her head, “shit, I felt like such a bitch, being troubled inside with your own happiness… well, not just that, of… what I imagine you must have lived to get there.”
+
+Koona smiled, “you…” as she pulled Cat tight, shaking her head softly, then whispering in her ear, “Cat, there’s nothing to be jealous of. You know, this year has taught me so much, to be myself, but through it all, you know, no one ever came close to making me feel so happy and just at home as I feel with you. Remember at the beach, at the pool… the last time? This is how I was feeling then and I’ve not felt it since…”
+
+Koona paused thoughtfully, “It’s not a being gay thing or coming out thing or just being with another woman thing… it’s a being with you thing Cat. Always has, always was. Before I could even accept it myself.”
+
+Cat’s heart smiled. She nodded and murmured as if just to herself, “this is so amazing”.
+
+“What?”
+
+“It’s what I said at the pool, fuck, I couldn’t just embrace it it. It was exactly this. Why couldn’t I see it Koona?” She was now crying again, “Caused so much pain to to you, to everyone… so much lost time, everything…”
+
+They held each other as the fledgling streams of daylight pierced the small cracks in the slats of the front window shade.
+
+But also in that same moment Koona knew she too was out on a new ledge. The previous ledge was accepting herself and beginning to live a bit. That ledge was now a habit… but this one??? There were things that she wanted and was now feeling here in Cat’s arms that, meant…
+
+“You know what I’m thinking?” Koona asked, pushing back a little to look at Cat in earnest conversation.
+
+Cat shook her head.
+
+“We’re both adults. We’ve both been through and experienced,” she paused for a better word but did not find it, “… the stupid stuff. Hooking up right away. One night stands,” she shook her head as if she never wanted another such, “and we’ve been friends forever. Do you think it makes sense to just go… a bit… slower?”
+
+She had read Cat’s mind. Aside from how delicious it felt to finally be in her arms, and in what seemed like would be more continual presence, she had been nervous too. She wanted it to be just right.
+
+*Anything but another fling.*
+
+Cat nodded her head, “Yeah. Yes… and you know, really,” her eyes flitted up and over remembering something, “since we’ve… been reacquainted, you know, and it was what I was going… trying to… wanted to say at the cafe…”
+
+Koona was listening intently, dark eyes warm and focused on her, so Cat continued, “That’s why it hurt, when you got mad…” she paused and quickly added, “but you were right, totally right. But you know Koona, it took some hard knocks, but its what I’ve always… always felt with you that I never felt from anyone else. I just love being with you. Next to you. Talking to you. In silence. Whatever. You’re fun. You’re my favorite… always been,” the tears that had been building now starting to fall, “I don’t care if we waited a year or ten years… your presence, your smile, your hugs, how secure you make me feel… are more than enough.”
+
+Cat took a breath finally as she let the tears fall as Koona pulled her to her once again before continuing, “I even debated if I should say anything even when I accepted my feelings, because… this is enough, it fills me.”
+
+“Well, but… I was just thinking more like maybe a few days?” Koona feigned timid innocence as she breathed into to Cat’s ear, the breath caressing her sensitive ear, sending what was starting to become a familiar stream of warmth to Cat’s core. Koona was right. She pulled her close realizing that a few days might actually be a tantalizing eternity.
+
+And Koona suspected it might be another kind of eternity for herself.
+
+*This will give us a chance…*
+
+*…clear up this Tom and Dee shit… I won’t be anyones Tom.*
+
+*There’s no way Cat is so tied to following rote culture but I have to know.*
+
+*I want more.*
+
+
+
+
+
+# Out
+
+As Mali laid on the comfortable couch in a near stupor, \$he reflected.
+
+In the end they had eaten on the street. It was just easier. And upon Ana’s insistence, more fun. Which it was.
+
+Then they had reached the very nice hotel. 
+
+Two showers taken.
+
+Two changes into comfortable clothes.
+
+A sprawled body on each of the two couches of the suite. “It feels good inside,” Ana murmured.
+
+“Inside here?” Mali lazily gestured to the room, “I like it too.”
+
+“No,” Ana intoned, “In here,” as she patted her heart.
+
+Mali rubbed her feet back and forth on the plush arm of the couch, creating that warm feeling and tingling inside \$he hadn’t felt perhaps since a child.
+
+But before \$he could vocalize, Ana returned, “You know, when you hoop… you’re inside too,” pausing to get the words right, “but out and about… I feel like maybe you’re not inside. Like you’re living in a cold world and you feel it… out in the cold…” She stopped.
+
+Mali nodded.
+
+*Like the loss of innocence, living in this world, as I am.*
+
+“But, you know, you’ve got to come home sometime. I mean, if you want to be happy. You do, right?”
+
+Mali felt the tears again.
+
+But this time instead of deflecting \$he propped \$erself up to look at Ana as they fell, “I need help,” as the reservoir broke and \$he surrendered to \$er trust in Ana, “I need you. I need your help.”
+
+They’d hardly just met but Mali knew this. “I’ve always needed…”
+
+Although such a loner and needing \$er downtime, but \$he had kind of given up on this longing but it never had left.
+
+*To need her.*
+
+Ana came over and sat beside and leaned to embrace \$er and whispered, “Don’t worry sweetheart, you’ve got me.”
+
+*But for how long.*
+
+*Everything good is always temporary for me it seems. Like Cat. Fuck.*
+
+Mali looked back at Ana and for an instant felt petrified.
+
+*What?*
+
+*Who?*
+
+*Where am I?*
+
+*WHO am I?!*
+
+It was like a time warp.
+
+*I just met this woman today.*
+
+With any other person this would be a huge red flag on both sides, way too close too soon. 
+
+“It’s okay,” Ana sat up and gently stroked Mali’s temple, and as if reading \$er mind, “I know, it’s weird, no?”
+
+“Weird? This morning we met.” Mali stated definitively. Then smiling pensively.
+
+“Yeah.”
+
+“Do you trust me?”
+
+“Well I’m sharing a hotel room with you,” Mali smiled which broke Ana also into a chuckle.
+
+“So yeah, I trust you too then so it seems,” Ana squinted, drawled into a huge yawn, inciting Mali’s own.
+
+“I’m really tired I guess.”
+
+“So where do you want to sleep?” prompted Ana. “Honestly?”
+
+“Uh, no, I prefer lies generally,” smiled a cozy Ana who had pulled her legs up and was nestled into the cushy arm at the other side of Mali’s couch, surrounded by pillows.
+
+*Fuck boundaries.*
+
+As if impulsed, almost with the seriousness of a proposal, and to be closer and honor this absolute cuteness, Mali softly got up, and sat on the floor in front of her, looking up locking on Ana’s blue eyes, “If I had my way, it would be to be close to you. And with your head rested all night on my heart, you know, feeling inside here, holding you close to me,” pausing, Mali tapped \$er left chest and smiled back, “is that totally insane?”
+
+\$he had rarely ever been so forward nor so self-assured to ask for what \$he wanted. But with Ana there was no apparent need for restraint or distance. The door was opened. \$he moved to rest\$er tired head on the front of the couch pillow in front of Ana. With their closeness a calmness and tranquility had invaded Mali’s entire being. Not since being a child ever had she felt completely this way, like protected, like everything was now cared for and was going to be alright. Forever.
+
+And \$he dozed, which could have been a few seconds or an hour, a dream transpired in the interim, that $he know. And then gently lulled with some sweet words.
+
+“I would do that. And raise you one,” Ana reached and stroked Mali’s hair, “I also want to hold you, so maybe we can trade off,” Smiling, “buuuuut, I am so tired though, and I think you just fell asleep *for reals* so can we make it soon?”
+
+“Nothing could be soon enough,” a groggy Mali, feeling so warmed in her heart found the wherewithal to push her groggy self up from the couch.
+
+As they crawled under the warm covers for protection from the cool air conditioning in the comfortable bed, and Ana true to her word snuggled up to Mali, her head turned left and on Mali’s chest and her arms up on either side, embracing Mali, like a big pillow.
+
+As Ana fell asleep Mali reached her only free arm around to return the hug.
+
+And they were out…
+
+
+
+
+
+# Deepening
+
+Morning light filtered through the opaque white curtain. Mali laid on her left side with left arm under the pillow, her bookend Ana laying on her right side. They both seemed to have awoken at the same time, open eyes gazing into those of the other. A smile. Not ordinary. For Mali this was not even like waking up with Cat. Cat was still ‘another’. Anastasia felt much closer. Like herself, if she were aware of those terms and tried to describe it. Ana was the best of what Mali would want to be. Perhaps could be.
+
+“Hello” Mali smiled deeper, deepening in the cheeks and affecting her eyes.
+
+“You woke too soon!”
+
+“Me? You’re eyes were open when I looked before I talked!” 
+
+“Because your eyes were opened first!” she joked back.
+
+“If I didn’t know who you are I would just attack you and kiss you right now.”
+
+“Oh, so you know who I am?” 
+
+“A little.”
+
+“So why not attack and kiss me?” 
+
+“Something’s different with you, with us.” 
+
+“You’re not attracted,” Ana pouted. 
+
+“Kidding?”
+
+“Then?”
+
+Ana had beautiful full lips. Already it had been many times since meeting that the rather passive Mali wondered… about those lips. About what *this is* with Ana.
+
+*What is Ana doing here… with me?!*
+
+And now, coming close \$he could feel Ana’s soft breath and dreamy eyes below \$er.
+
+Reaching in \$he grazed her lips with a gentle nip, as Ana pulled Mali down to \$er side, embracing face to face.
+
+Wellbeing and oneness pervaded the two… a welcome shower of oxytocin, serotonin and who knows what else… all the chemicals and feelings Mali’s world had been running on empty for so long.
+
+It was strange but there were times in the past when Mali had imagined embracing and kissing \$erself - it was always as a girl, \$he had no taste for the guy Mark at all. But \$he’d imagined, what would it be like - would she like to be with someone just like \$erself? Usually the answer was yes — totally. Like when you create in your mind the perfect kiss with someone… and how the other person responds… is how you want to feel them.
+
+That’s how kissing Ana felt. But it was real.
+
+The kiss was like an exact meeting. It was delicious but not of this world. It made her want something more. IT was not sex.
+
+Didn’t even feel like that was the direction this was going. That would be just a let down and not the way. But she still could not completely surround it with her heart or mind what this was.
+
+“I know,” Ana pulled back a little, replying softly but seriously to Mali’s return to her gaze into her eyes, “you know\- well you will know. Soon.”
+
+“Why the heck do you keep talking like that!” 
+
+“Does it upset you?”
+
+Mali let it out, “no, its just that, its like when kissing you, its the best, but I am although would enjoy it immensely, its not about making love with you, doing that would be… uh… not enough. I just don’t know what 'enough' is though. Its like my whole life, I feel these subtle things but I'm like a blind person fumbling around in the dark.”
+
+“You have no idea how close you are. Just be patient sweetie, okay?”
+
+Mali relaxed. If nothing else \$he already loved and trusted this woman. As \$erself.
+
+“Okay.”
+
+Ana next pulled up to Mali and gently pushed her on her back, laying her soft head on Mali’s breast, eyes looking up studying Mali.
+
+“Its nice though, don’t you think?” Ana drawled smiling, “More than nice,” shaking \$er head. “I think this could work out, don’t you?”
+
+“Here we go again,” Mali smiled. It didn’t matter. It was too nice and she would soak in all the intimacy and love she was feeling, blindly.
+
+“I have an idea. I want to go eat those little Thai morning pancakes I read about. Can we?”
+
+“If you can sniff them out, I have no idea where here.”
+
+"Oh I can sniff them out, you just watch!"
+
+
+
+
+
+# Thai Pancakes and Watermelon
+
+*Don’t make yourself into anything, don’t become anybody, because trying to become anybody is suffering.* — Ajahn Chah
+
+Sitting on the little wall at the edge of the park under the morning sun-shade skyscrapers, Ana asked, “Do you love yourself, Mali?” The tone was light and innocent.
+
+“Well it’s funny you should ask that, Ana,” Mali shook \$er head, responding as if on a talk show, the coincidences and serendipities of late were getting to be a regular occurrence, “I met a monk last week. He told me the problem I have is with myself, not the world. He said I think the world hates me but it’s really me who hates me.”
+
+They had walked it seemed for about an hour to finally find a street vendor cooking up the prized tiny silver dollar sized ‘pancakes’ made with coconut. \$he took another and began eating it. The rest now after the trek with them sitting here on the wall, finally, was a sweet and satiated exhaustion. The summary of the surreal Face-monk experience fell easily from Mali’s recollection into words.
+
+Ana nodded, with eyes focused on a young boy chasing a ball across the grass, near the lake, with open arms. She drew a breath and sighed.
+
+“So what are you doing about it then?”
+
+Mali took in a deep breath also and spoke, “I’m just feeling it. Remembering, reminding myself of this when I’m around others, and it seems true, I’m constantly anxious and judging myself. Then when anything happens outside, I think it’s either about me, malicious or both.”
+
+“Okay, so but you’re still thinking, right? I mean, do you feel what you’re feeling when you’re around people and judging yourself?”
+
+“Well, I feel better by recognizing it. But that’s as far as I have gone. It’s only been a few days, all new.”
+
+“So, like when you’re around people and feeling this, do you feel yourself? Do you know who you are when you’re in presence of others?”
+
+The question hurt. \$he felt always like kind of at the whim of everyone else. Unless \$he was feeling really good and in a good mood. And even so, from this place \$he could fall into complete despair in the matter of minutes. It was embarrassing. Even by people half \$er age, worse teenagers. It was the same as in childhood and \$he couldn’t figure it out.
+
+*I’ve gotten so used to this I didn’t even realize how really screwed up it seems.*
+
+\$he summed it up, somehow with a clarity and wish to voice the feeling to Ana who gave \$er hope, “I feel like a fucking feather in the wind a lot of the time. I don’t know, when I’m alone and connected to myself, I know more of who and what I am… and out and about, I’m… I don’t know… so afraid? To be myself?”
+
+Ana nodded but was silent.
+
+Some moments passed until Ana spoke as Mali had nothing to say, “Hey, is that a fruit cart?” she pointed to the other side of the lake, leaning forward and squinting, as if peering her eyes would really help.
+
+“I think so, you want?” Mali was actually feeling something bubbling up inside and kind of looked forward to a little walk and away time.
+
+“Yeah! Do they have watermelon?” 
+
+“Do pigs oink?”
+
+“Heeyyy, how did you know about that?” 
+
+“About what?”
+
+“Pi… uh… never mind for now,” she caught herself thinking that the Tigger Princess part was probably enough already for Mali, “but… can you get some watermelon for me? Pretty please??!” she smiled widely like a child asking for candy.
+
+Mali smiled, nodded and got up, enjoying as \$he could \$er self- conscious walk and feeling observed by strangers… and well, by Ana. Somehow whatever self confidence \$he had was gone and wanted to get away, even from Ana now. 
+
+Mali made \$er way back to Ana with a bag of watermelon.
+
+As Mali approached \$he spoke, “you know, we’re always supposed to say ‘yes’ to that question, right? I mean, does anyone really say no?”
+
+Ana tilted her head, “Beg tell what are you talking about?” she let her voice drawl a bit and right then Mali could see her on a farm with a weed between her teeth.
+
+*Well, she is from Omaha after all.*
+
+“Do I love myself. That.”
+
+“Oooooh. Well, I guess some people do say no. But I get your point,” Ana turned her head to follow a child chasing a ball, “But do you think you don’t?”
+
+“I think I do but sometimes I wonder how I know or don’t know that. Like the barometer is missing. But I had a friend years ago that kept asking me why I think so lowly of myself. And I couldn’t answer her because… I couldn’t see it,” Mali turned \$er head to Ana as she also brought her eyes back and the two locked as Mali shrugged, “I still don’t know. Honestly. There is a core of me I love. Alive, funny, playful, gentle, loving. I know I love this in me. But there are lots of things I can’t tolerate…”
+
+“Mali, you’re anxious so much. Why?”
+
+“I feel awkward a lot. It’s weird, not awkward like I used to feel when trying to be a guy. But now I’m just self conscious I guess. I feel like everyone is looking at me.”
+
+“That’s funny, because it seems you hardly look at anyone directly when you walk. Like just now, I was watching you. Why is that?”
+
+“Ah, so the self-consciousness is for a reason!,” Mali joked, then sobering noting Ana’s poker face, “I guess… I don’t know…”
+
+“Well, if you think everyone is looking at you, maybe you should actually see for yourself? What are you imagining people are doing when you’re not looking?”
+
+“It feels hard to move my eyes, make contact. It feels uncomfortable, scary even. I feel kludgy, ridiculous and I guess I think they’re seeing this.”
+
+“That’s what I don’t get about you Mali, you’ve evolved so much and done so many things - things many people never and are even afraid to do. Yet, you don’t seem to own yourself and who you are, stand up, make contact.”
+
+“I know, I feel it and sometimes don’t understand it myself,” Mali sadly smirked and shook \$er head.
+
+“Tell you what, you want to try something fun?” 
+
+“Here goes…” Mali smiled crinkling \$er nose.
+
+“Just humor me, okay cutie?” Ana coaxed, “So, do you feel that way when we’re together?”
+
+“I guess I just focus on you and not worry about it. And because we’re together I feel safer to look at people. You protect me,” Mali laughed, nudging Ana’s shoulder, “I need someone to protect me…”
+
+Ana could not handle it and stopped them and hugged Mali and whispered in \$er ear, “I’ll always protect you. You have nothing to fear,” then lowering \$er voice and tone, seductively, “So, I want another bag of watermelon, will you get me another? And while you’re at it, see if you can just look at each person along the way, it does not have to be long, just maybe in your mind tell yourself you’re looking around to see who is available to make eye contact with, however briefly. And feel me with you, okay? Because I will be.”
+
+Mali nodded. The park was moderately crowded with the late Saturday morning exercise crowd and families strolling. \$he slowed \$er pace. \$he let \$er eyes relax and look out on and about who was there. Somehow, contrary to the usual anxiety, a deep breath came in. And with that \$he felt \$er neck relax. \$er eyes wandered in the further distance and a slight smile came to $er with the relaxation. A tranquility \$he had not felt in a long time.
+
+A couple was passing by and \$he just let \$erself look at each of them. The woman smiled at \$er as they met eyes. Mali smiled back and continued on \$er way.
+
+\$he looked over at the older man practicing tai-chi. Who \$he’d always avoided before, for whatever reason. \$er smile was already a little bigger. The man’s face had so much life and humanity in it. Beautiful really. The man was absorbed in his practice but \$he could feel he acknowledged \$er presence.
+
+Continuing on, passing the exercisers. The majority men with some women. \$he always felt weird allowing eye contact with men.
+
+\$he had kind of told \$erself \$he did not have to now that \$he was accepting \$erself as female. Well, and it sent the wrong message. Doubly that \$he had no interest there. Which itself was liberating from the ‘world of men’, but at the same time gave license to further isolation.
+
+*Women didn’t generally make that kind of contact with men, right?*
+
+And still \$he had since grade school felt so much ridicule and negativity towards \$er person from boys and men. That there was something not life affirming or healthy in all. Especially for someone who at least in \$er mind prided \$erself on making \$er own rules.
+
+Nevertheless, \$he looked. Just one by one, kind of quickly, contacting with the men and women there. Instead of people making fun of \$er \$he just saw their intensity in their exercise, in some a level of kindness, others - in fact most - being oblivious or just as anxious about eye contact themselves.
+
+By the time \$he had made it to the fruit vendor \$he felt a lot more powerful and a lot happier.
+
+The vendor smiled. \$he smiled. \$he couldn’t remember if \$he had smiled before.
+
+“Phonlomai mak mak,” the vendor smiled as \$he ordered, *much fruit*.
+
+Mali nodded and for the first time saw the man’s eyes in the moment.
+
+With the new bag of watermelon in hand \$he headed back but this time the other direction to make a full circle of the lake. The exercise got easier. And \$er eyes, well \$er emotions came to the surface. The world felt and seemed different.
+
+One thing for sure, most people were not looking at \$er. And the one’s who were… weren’t unkind. In fact the opposite. Something let go and some tears came. Crazy the world \$he lived in most of the time. If there was a hell, *that* was it, \$he decided. She smirked at the thought laughing at \$er fear of *going to hell* as she was in fact already *there.*
+
+*Maybe becoming myself entailed going to hell first, but that I don’t have to stay there.*
+
+Approaching Ana finally, feeling her like a new friend, here waiting. Not shy at all, Mali held \$er eye contact and smiled.
+
+Which Ana reciprocated. “So?”
+
+“You were right.” Ana nodded, “and?”
+
+“It felt like a different world. I wish I could sustain this,” Mali smirked as if \$he didn’t believe.
+
+“You can you…” with a pause drawing breath.
+
+Mali interrupted, “I remember a few years back I had a girlfriend - barely that I let her get close because I was so tired of hurting people out of my confusion of who I am. But she bought me a Christmas gift and its like I couldn’t handle - I hated the idea of her seeing me as a man and enjoying a gift. As a man. *That man* I saw, with a smile and happy and how she’d feel in connection with him, I hated to be that. Weird, huh?”
+
+“So not only can you not see others, you can’t see yourself.”
+
+Mali felt strangely queasy in Ana’s apparent psychological laser vision.
+
+“So, if *I* gave you a gift now?” Ana asked in a lowered and seductive voice.
+
+Mali laughed, “You are! You have been giving me a gift! I don’t…” hesitating unsure to presume how Ana saw \$er, “I would be sad if you saw me as a man.”
+
+“Okay, so as a cute lovable woman then?” stated Ana with an upturned smile, “you’d accept it now?”
+
+“If you really…” Mali felt choked up all of the sudden. \$he felt the layer of tension and crap over \$er still. How could someone see *her* if \$he could not - was not - fully that. But \$he was so much closer now to *her*. A tear fell from \$er eye as a layer of defense to Ana fell. A layer \$he was not even really aware of.
+
+*It’s true, I guess Cat saw me as who I am too.*
+
+Ana put her now empty bag of watermelon down and placed her hand on Mali’s which rested on \$er knee, as Mali got the words and continued, “If you… saw me as a girl. Not just accepted or humored me, but to you I am a girl. Yeah, then,” Mali nodded to $erself at the realization.
+
+“So it depends on how I or others see you for you to feel good about you?”
+
+“Put that way, and it sounds pretty fucked up, huh?” Mali shook\$er head and laughed.
+
+*I feel really stupid. I’m forty-three years old. That’s fucked up.*
+
+It was ridiculous. Ana didn’t respond and Mali stared out nowhere, feeling the sucky muck inside that seemed to compose this external definition complex. It was nothing new, \$he was aware of it but not what to do about it. So \$he sat silently, avoiding Ana’s eye contact and shaking \$er head as some minutes passed.
+
+
+
++++
+
+
+
+“Fuucccck!” Ana’s expletive broke Mali’s gridlock, “Hey,” Ana flapped the top of her hand at Mali’s upper arm calling attention, “Check her out!,” she whispered fiercely.
+
+A tall super athletic Thai woman was just passing by, beautiful, powerful, strong. Poised. Not some fragile, passive woman.
+
+“Fuck.” Mali only could shake \$er head. \$he liked, though, how easy it felt, both of them checking out this beauty.
+
+“I know, so what about her? Do you like?”
+
+“She could take me any day, any how… if she… you know…”
+
+“So you’d, you know…” Ana looking for a more graceful word and then gave up, “fuck her?”
+
+“You’re the one with the lesbian flag hoop colors,” Mali laughed but Ana persevered.
+
+“I mean as a man, you’d be with her as a man?
+
+The woman certainly sparked romantic energy in \$er. But it was the horrible Cat question.
+
+*The fuck-up-my-life or abandon myself question.*
+
+As it wasn’t like \$he couldn’t get the energy or turned on by such a fantasy. But both alone and the times \$he’d been with someone, it’d always gone downhill from there, even to fuck the most attractive woman as a man. In a way it was exciting but at the same time like something that took a lot of energy and always forced. Even in fantasy, it was never a happy ending.
+
+*Anyhow I think I’m beyond that. The night with Cat pretty much nailed that coffin shut.*
+
+*And if I’m honest with my*self years ago with Sarai. 
+
+“Sooooo?”
+
+Mali shook \$er head no. At that Ana pulled Mali’s arms so \$he’d come off the wall as she had a moment ago. She shoved Mali and pushed \$er back against the shoulder height wall. Hands on Mali’s shoulders holding \$er there, staring, piercing into Mali’s eyes.
+
+“Maybe like this, if I was her?” 
+
+It felt good. Yes. Mali nodded.
+
+Ana smiled.
+
+“Right now, boy or girl, you?” Ana was playing back The Face’s words \$he’d recounted.
+
+Mali smiled at the reference. “You could take me anytime Ana.”
+
+“Aaannnnnddd?” Ana crooned in a low tone into \$er ear, Mali feeling her breath.
+
+“All girl,” Mali gasped under \$er breath.
+
+“You want me to *fuck you*, take you like this?”
+
+“Anyday anytime,” Mali gasped now with a little lump in \$er throat. If only… they… could always stay together. It would be perfect.
+
+“Interesting,” Ana remarked letting Mali go in a far to clinical tone of voice, “So you *do* know who you are… when you’re with me,” she squinted, strangely in the likehood of Cat.
+
+She seemed so sure of it that it struck a chord in Mali and \$he bought it.
+
+“But maybe to get there you have to really find a way to love all that you are?”
+
+“What part? The part that is a biological man and has that look and way? Has the parts, the testosterone. Or the me that is inseparably pulled to be feminine?”
+
+“Why not both?”
+
+“Because they feel irreconcilable. I can’t be in one with the other. One can only exist to the exclusion of the other. At different times. I’ve tried. I feel ridiculous being a woman and looking more like a man, like this,” Mali motioned to \$er upper body and face, “And when I push down being female, she sooner than she later comes back with a vengeance. On the body level.
+
+Its not my mind going ‘I am a girl’. Its like a force of nature coming from my sacrum, lower belly - dan tien as the Chinese say… It feels not only uncontrollable but irresistible. I don’t feel inside like a man at all.”
+
+“And so then if you’re female inside, why do you go back to being male?”
+
+“Well, for some years, I’ve stayed generally in the middle. I don’t really want to go back to being male. Sometimes I wonder if it’s better if I would, but I already know what would happen,” Mali remembered back to even \$er last attempt at Hua Hin, lasting only hours.
+
+“What?”
+
+“I just sooner than later feel the feminine come over me again. It’s heartbreaking because I can’t be the person who the woman I dream of would be at all interested in…”
+
+And then emphatically, “I’m not a gay man! All this makes me seem so gay. What woman wants this? I know who… no one!”
+
+Ana nodded and contemplated out on the lake with her flavorful eyes and after a little bit started nodding, “Yeah, yeah, it’s starting to make sense.” But she said nothing more and just kept nodding and staring out, with a bunch of those emotions and movements going on on her face, then a frown and more nodding.
+
+Ana suddenly eyed the remaining of their surplus of uneaten pancakes they had over bought having an unrealistic idea of the hunger incurred, “lets feed the fish - or the ducks!”
+
+It sounded like a good idea.
+
+They stood in the tree shade by the waters edge willing fish and ducks to approach, which after throwing in a couple crumbs both species were summoned.
+
+Ana smiled, “I love this! Look at that little duck, its sooooo cuuuuute!” Sure enough it was probably the cutest duck in the pond.
+
+“Ducks are hilarious. Ducks, cows. Now wild boars too,” Mali turned to Ana smiling with a little snout, her heart falling, this was just the sweetest thing being with Ana. There was a gentleness and innocence which eluded everything. The kind of softness and connection that makes one cry thinking that life does not go on forever. It was so strange, the most alive thing in the world making one realize how precious and impermanent it all is.
+
+Looking into Ana’s eyes smiling, the words escaped, “I don’t know about you but I am not sure I have ever felt like this. Imagined, yes. I can’t believe you’re here. We’re here. I feel so small,” tears welling up, “Like why are you with me? I’m not attractive. Not to many. I have so many things wrong with me. Why?”
+
+Seeing Ana’s eyes turn empathetic, Mali added, “And I don’t want it to end. It should not end.”
+
+Ana reached for a hug and forgetting where they were, Mali lost her footing and fell backward. The two, both of whom spend significant time each day on poise and balance lost their whereabouts and footing. They were going swimming.
+
+“Noooooooooo!” Ana screamed as she fell on top of Mali, pushing her further into the green water-muck. The water was tepid, pee- warm and opaque green and felt just as slimy. Like an overused baby pool that had long fallen out of maintenance. Without chlorine!
+
+Mali surfaced laughing, completely wet. Would have been grossed out too. But if there was one thing about \$er, aside from the rigidity and anxiety with which she structured her life, it was that she knew when to surrender. This was such a time.
+
+*What else can you do when you’re shoulder deep in caca and who knows what else that can live in a man made lake in the middle of a crowded city in a tropical climate?*
+
+“You pushed me in the lake!” \$he half screamed and teased Ana, “Do you have any idea what’s in here?! I mean, I’ve never never ever seen a Thai person, not even a dog in this lake!” Mali was now laughing and the tears were flowing, and looking at Anastasia breaking into her own shake of laughter, fed back, “I mean, there might be a fucking reason why!”
+
+“I was trying to give you a hug!” Ana intoned with shrugged shoulders and a sad face.
+
+“Some hug. You owe me one!” Mali smiled, splashing some of the muck-water at her playfully. Ana was so adorable and playful. She loved that about her. It made her laugh even harder in joy.
+
+*What is it with this park and stunts with liquids?*
+
+This all brought back *that evening* with Cat, the rain and all that red soda!
+
+Ana piped up, “It’s not so bad Mali, the ducks and swans swim in here and they’re not dead!”
+
+“Well maybe they are just new ones every day!” 
+
+“That’s an encouraging thought.”
+
+They were standing face to face, Ana soaked to her upper breast. She smiled, came close. Mali was laughing so hard inside that it just solidified into a smile that filled and mirrored complete joy. Ana reached up and put her arms around Mali’s shoulders and neck, this time successfully pulling her in. Not to a kiss. But to a full, deep, tight embrace. So tight it could only last a few moments to fulfillment. The kind of embrace only dreamed of. Mali felt her body go completely relaxed, even the emotion of laughter a far away thing.
+
+Ana held and dunked both of them under the water fully and came up.
+
+Ana released slowly and slightly looking into Mali’s eyes just inches from her own, “you don’t have any idea how long I’ve waited for you too.”
+
+
+
++++
+
+
+
+They had now climbed out of the lake and onto the shady grass to dry out a bit and get out of the public spotlight. They sat in silence for some time. It was several long moments until the non-sequitur came from Ana’s lips.
+
+“You know Mali, no being wants to be hit with a club,” Ana drawled softly, sounding mid-western all of the sudden.
+
+“What the fuck?” Mali’s head jerked unconsciously*.*
+
+“You would hit me with one then?” and still Ana was not done, “It’s a hard painful world, a living hell veritably where you blame everyone on the outside for simply what you don’t embrace and allow in yourself.”
+
+Something about the water, the surrender necessary just to be *here* in it*,* and those words. Everything. Mali broke into full sobs, curled forward for privacy, letting the tears stream and drop onto the grass. Ana’s hand rested on \$er back around \$er heart, which was opening.
+
+
+
+
+
+# Escaping the Ten Minutes
+
+“Sweetheart, I know we’re on almost no sleep but… if we stay here,” Cat breathed, “I can’t speak for you but we won’t make it three days even.”
+
+Regardless that they both were on maybe three hours sleep, having passed out in each others arms on the couch, the two awakened to a passionate kiss, that regardless of the deliciousness, their proximity was on another octave of urgency.
+
+Koona smirked, “If we stay here another ten minutes I’m going to rip your clothes off.”
+
+“The mall?”
+
+“Yeah. Safe. Let’s go.”
+
+And so that was why… at 10am they were *here,* Koona firmly holding Cats hand as they made one by one the glass escalators up to the top, the food level. Where they could have breakfast. Then sit in a cafe, have a tea or coffee, and daze out on the comfortable couches.
+
+As they walked, Cat reflected. That image of Koona coolly limping up the dark street last night. It was something she’d never forget for the rest of her life.
+
+Her head was spinning.
+
+The lack of sleep didn’t help.
+
+*But I’m with Koona.*
+
+*WITH Koona!!!*
+
+Her best friend, all that history.
+
+*For years.*
+
+And the woman who knocked her sensibilities over from the moment she saw her, version Koona 2.0. The woman who made her face and fix the web of pain she had been creating. Who made her come to her senses about…
+
+*Who I really am too.*
+
+The girl in the cafe that night who put her in her place and sent her heart into that crazy jeopardy. The kind that makes you wake up. Because there’s no way you’re going to let yourself lose her if you have a choice.
+
+Cat was still even working on reconciling v2.0 with the original Koona.
+
+She shook her head. Koona noticed. “What is it?”
+
+Cat smiled playfully, “I can’t get over how amazing you are,” she shook her head, tilted and gazed at her friend, “I’ve known you my whole life and I’m…” but she lacked the words… “WHO are you?! Can you pinch me, I think I’m dreaming.”
+
+Koona smiled back, laughed and squeezed Cat’s hand.
+
+They were then passing through an area that was virtually empty that had a hallway off to the side. Koona pulled Cat into it. \$he let go of Cat’s hand and placed her petite hip in its grip. Holding her shoulder on the other side to both keep Cat stable and control her, she pushed Cat a few feet and pinned her against the wall.
+
+“I can do better than that,” Koona just about gasped as she leaned in, seemingly for a kiss, but she grasped Cat’s upper lip with her teeth and bit into it firmly and just enough more than gently for Cat to feel the intent, as Cat fueled by the passion came back to force kiss her back.
+
+Cat held Koona, “I love feeling your strength. Your power.” “I love feeling…” Koona brushed unobtrusively Cat’s breast with her forearm, “*this…”*
+
+Cat smiled and looked far away for a moment. 
+
+“Come on, what are you thinking about?”
+
+“When… back then,” she wasn’t sure, didn’t want to keep brining up that painful time for Koona, “at the pool.”
+
+“What about it?”
+
+“You. You then. You now. I’ve been trying to connect the dots,” she paused.
+
+Hearing footsteps in the corridor, they reluctantly parted.
+
+Straight Thai couples at most held hands in public. Where they were now was significantly beyond that point and both knew it.
+
+But everything felt so immediately right to Cat. Proudly right. That was the word.
+
+*For all I care we could make out right here and let them use their freaking mental erase.*
+
+Not a girl-friend but Koona’s girlfriend. Hmmmm, maybe that’s why gay couples did it, to show the world, holding hands when straight couples hardly do. That would perhaps otherwise assume they were just friends. She’d never considered it.
+
+Koona’s hand was firm but gentle, not unlike her biting kiss, and felt so good. As they wandered the mall, it was like everything in the last days - well weeks - was so new, but for once felt easy and right. Regardless that Koona had swept her away on so many levels and she was trying in vain to reconcile her. She smiled and tears came to her eyes, feeling grateful for everything. She loved this adventure. She loved their history.
+
+She loved that they on top of the best friendship she’d known, too that they seemed to light one another on fire.
+
+She weighed on Koona’s hand to bring her close, “I love being with you,” she whispered. She just couldn’t help it.
+
+*Yes, I could get used to this. Definitively.*
+
+“Koona, you’re the perfect Tom,” Cat whispered, as they strolled once more after some good quality time in the cafe.
+
+*Shit.*
+
+*Damn.*
+
+*Is this going to fuck everything?*
+
+Koona’s heart sunk a bit. She had to resolve this. A fucking new ledge. These were always so hard but always so worth it in the end. Truth and transparency was always better.
+
+*But how do I say this?*
+
+Cat caught her brooding, “What’s wrong Koona?”
+
+Koona shook her head. But she had to speak.
+
+“So it’s like…” she stuttered, “okay, well, you lived abroad. Maybe this is not such a big deal.”
+
+Cat looked confused.
+
+“But first, why, do tell, am I a perfect Tom?”
+
+“Because you’re a totally beautiful woman. And you’re so confident and strong. Next to you I feel at peace and looked out for, protected. Safe.”
+
+Koona shook her head again.
+
+*Maybe it’s nothing.*
+
+
+
++++
+
+
+
+The way her culture seemed to deal with same sex attraction felt messy to Koona. It had actually been via using her analytical powers that she had begun to liberate herself enough to accept the feelings inside, she had also read quite a bit of western literature on sexuality and gender. Through the heartbreak of Cat, the loneliness and confusion, she studied and read voraciously.
+
+Through the reading, she explored how she dressed, how she held herself. She had always been a quiet leader. But changing clothes and increasing poise, she became something real to other women. Attractive.
+
+Women started noticing her, and wanted her. She had no thought of being a Tom or ‘masculine’. It was only that over time it seemed that because the feminine was so polarized in her culture to frilly, dumb and weak, that she appeared as Tom although in other cultures, like in the USA, she’d just be a normal, perhaps professionally dressed, poised, assertive woman.
+
+So even before her first real world experience with a woman, she’d delved in to things that most of her Thai lovers would never know about sexual and gender diversity.
+
+She had come to the conclusion that her culture basically did not want homosexuality to exist. Which of course, to foreigners, who saw so many same sex couples there, her view would raise eyebrows. What others might call ‘lesbian’ couples in her country were labeled Tom and Dees. Toms were thought to be in essence masculine in their souls, men. Dees feminine.
+
+In her culture ones sexual orientation and expression was thought to be born from one’s gender essence. So a female with a male essence was essentially more of a man than a woman. And a man with a female essence was thought to be more of a woman than a man. And so in essence, a Tom and Dee couple were not a whole lot different than a straight couple.
+
+And so, with the cultural institution of Toms and Dees, in her view, her culture had winged away from homosexuality in terms of woman-woman couples. Toms were ‘male’ and Dees were ‘female’. Only Toms went with Dees. Dees did not go with Dees so much. That was thought to be strange. As was Toms with Toms, even weirder. And Dees would go eventually and marry a man. So essentially thought bisexual. But Toms were always Toms and would only date women.
+
+What was the worst, before she figured things out for herself, is that she never really saw any instance to the contrary. And in her culture, her old appearance especially, she was a Dee. She was feminine. Cat was too. So how could she be in love with Cat? Desire her? That was her first hurdle.
+
+And so began the crazy year. And through her lovers, Thai and foreign, she saw and proved her view of her culture to be rather accurate. With foreigners… it was like there was no conflict. She could just be whatever and however she wanted to be, she could be stronger and more dominant. But with them she was also surprised and aroused to find that despite her exterior, in intimacy she liked even more to surrender and be taken. Pinned down. Held strongly. Taken. Fucked against the wall. She could feel the sensual warmth in her pelvis peak just with the memories.
+
+But with most of her Thai lovers, that had become an issue.
+
+She was - somehow naturally - cast into the Tom role. Which in itself was okay. She liked the strong appearance in women. She liked button down shirts and slacks. As well as more androgynous casual clothes. But such did not make her ‘male’. She had no desire to be a man or be seen as a man. She liked shorter, shoulder length hair. But she was a woman still. Her identity was a female. She liked females but also wanted to be seen as a female.
+
+*So freakin sue me!*
+
+And with her first Thai lover the shock came when Koona first expected her lover to also undress her… and want to. Which never happened. And then, when she started to undress herself, her lover stopped it. The girl did not apparently want to see her as a woman and undressing would do so.
+
+And so it was, to the Tom-Dee culture at large that Tom’s were generally there to satisfy their Dee but not the other way around. They were supposed to be like a ‘guy’ and serve the woman. Pick her up, drive her, take her places, pay for things. And in bed, only care that the Dee cums.
+
+*Yeah, ‘totally like a guy’.*
+
+Koona shook her head at her own sarcasm. The idiocy of thinking men so often really take care of their women’s needs first and not the opposite.
+
+She of course rolled with it for some time. As just being with another woman, even if she had to be mostly clothed, was okay initially. Just holding her, kissing her, feeling her energy and sexual passion. It was amazing. But she wanted more.
+
+And with the foreign lovers, it became clear that, at least to Koona, her culture was fucked up this way. Not because any individual was wrong, but that it seemed like this idiotic idea of the Tom woman was an imposed natural category.
+
+And although she saw that in a way her culture was more humane in that it didn’t, like most western cultures require one’s biological sex to determine one’s gender and acceptable ways of acting. In Thai culture one had more of a responsibility to be true to their essence, regardless of the sex of ones body. But that too left fixed categories that were expected. Fixed roles.
+
+Things she couldn’t tolerate in her own expression and sexual aliveness.
+
+If you were a Tom you were basically defacto considered transgendered, a trans-man for all practical purposes. The other thing she found strange is that she did not see ladyboy and Tom pairs. So there were more rules and nuances than met the eye, even to the Thai person much less a foreigner.
+
+And this was what had been bothering her. Making her want to delay intimacy with Cat. Until she had time to figure out even where to start with the subject. She feared Cat might expect those things of her.
+
+And if she did, it would break her heart. Again.
+
+*I have to talk. Just have to wing it…*
+
+
+
++++
+
+
+
+“A Tom, huh?” Koona smirked, playing it cool and raising her eyebrows. That was the thing with Koona 2.0, and Cat had not figured it out yet, how she had mastered coolness regardless what was going on inside.
+
+Cat spoke, “A type two Tom. Type one… they look like guys. Not fun. Not sexy. At all. Then there is the type two. Still feminine and beautiful. Yet so strong.”
+
+Koona nodded, “So, what does it mean to be a Tom to you? Because you know you said some things last week made it sound like… you wanted me to change myself…”
+
+“I was just angry.”
+
+“Well it did hurt. Even a lot. You have no idea what I’ve been through and experienced."
+
+“Really, Koona,” Cat pulled her hand to bring her to a stop by the railing overlooking the cavernous sparkling modern white- glass mall. A tear fell, her own heart breaking, “I wouldn’t want you to change a thing, really,” she was now crying at the rift she caused, “The second I said that inside I reprimanded myself for lying. I like… uh…” she smiled sadly, “turns me on how beautiful you are.”
+
+Cat was caught off-guard as she realized she’d never really thought about it. In fact her calling Koona a Tom was just a casual remark today and that from last week was just… shit from her culture she’d dredged up to use in a fight.
+
+“I don’t know,” Cat started feeling a bit queasy inside, and felt sadness rising, “you know, I feel bad I said that. I feel like I put a label on you. And I don’t…” she paused trying to control the tears that wanted out, “I don’t want to do that…” she paused…
+
+“You’ve changed so much since a year ago. I guess I just… made assumptions,” Cat paused as she knew that as much as she was elated with Koona’s transformation, she as much wanted Koona back then too…
+
+“Okay, Cat, but… I’m not a Tom. I may spend 15 minutes putting on my makeup, and have a natural look while you spend an hour or god knows how long. But that doesn’t make me a Tom. I like feeling strong a lot. But not all the time. I’m not invincible. I don’t have any desire to be or be like a man. I have no desire to be the ‘provider’ in a relationship, the 'guy', I want an equal…” her voice trailed as the fuel reignited in expressing the conclusions she’d come to…
+
+“These dualities are so much bullshit and only are buying into the same crap that puts lesbians in a second class to straight people, like we’re not good enough to be ourselves so we have to pretend to be like straight couples - the ‘guy’ and the ‘girl’. Frankly I think that’s idiotic pumpkinhead bullshit. I like being toned, I like to be athletic. But that does not make me a Tom. Or a guy!”
+
+“You’re really taking the pumpkinhead thing to a new level, aren’t you?!” Cat exclaimed with a little jab, lightening the mood.
+
+“Damn straight sister!” Koona used a line she’d heard in a movie, which made Cat laugh.
+
+“Straight, huh?”
+
+“Well, maybe not as straight as a Tom and Dee couple,”
+
+Koona snorted sending them both into a bout of laughter. She quieted and looked intently into Cat’s eyes, seeking and finding that place in her too that would take her, fuck her too.
+
+“Maybe I’m an alpha, Cat. But that’s different. And not always.”
+
+Cat raised her eyebrows. 
+
+In response, Koona winked, “and that my friend… you’re going to have to discover on your own. If you are so inclined…”
+
+As they then recovered and began to walk away, Cat whispered in Koona’s ear, “I love how you were before and how you are now. I’m sorry… it was stupid. And too, so insensitive, this is so new to me…”
+
+Koona’s truth hit harder now as Cat processed it, “You know what, I can’t fucking stand weak wimpy women that need a man or a Tom to *take care* of them either. You know how I am, right? I never wanted to be taken care of like that. Have someone have to buy me shit and all that. I don’t intend to change. I’m very independent,” she paused, “really, I did not know what I was saying Koona. I think maybe at first, at the pool, I wondered because I thought we were both Dee’s. Just because… I didn’t know anything then, you know?,” she shook her head, “it confused me. Not in my heart, only because of what’s around us, the culture, you know? Maybe even up to today… but I think I’m starting to see things different…”
+
+*I can’t believe it, I think we’re going to be okay.*
+
+Koona smiled, comforted by the opening and new level they’d so quickly reached together for the price of facing their first tough subject. She took Cat’s hand and gave it a squeeze. She knew this was just the start - even for someone she’d known forever - of the adventure and journey.
+
+*If this stuff still challenges me I can’t imagine how it must be for Cat who it’s all new for… at lightning speed.*
+
+But this conversation had given her a gift of seeing how easily they could continue to talk about things like this… and it made her feel excited for… a lot more love. True love.
+
+“Help me know everything about you, Koona, okay?”
+
+
+
+
+
+# Searching for Godot
+
+“So I’m wondering Mali…” her voice trailed into a smirk, “Just wondering a lot, like… ahhhh” and nudging Mali’s foot with hers, “*this* foot,” now gently brushing Mali’s bare skin with her own, “does it feel like a man’s foot or a woman’s… or heck, something in between?”
+
+After their park breakfast, Ana insisted they return to the hotel for a nap. Which did not seem strange at all to Mali, \$he knew too well, about the jet lag that could hit all of suddn.
+
+But it had definitely turned into a non-nap.
+
+The two had made it to the bed, Mali laying on \$er back with hands over \$er head as Ana made her way and to Mali’s joy, curled up on \$er side, placing her arm around \$er and her head on \$er shoulder.
+
+She angled her head up to look Mali in the eyes. Mali just felt deeply the softness of Ana’s foot… *Damn she is distracting…*
+
+Ana had then pushed Mali’s shoulder down and held \$er to the bed. Not unlike how she had pinned Mali briefly against the wall in the park, with the words “so, to pick up where we left off…” Which seemed to have turned into a question and answer between them about the gender identity of different parts of Mali’s body than the overt sexual place it originally seemed to be going.
+
+So by now Ana had come to Mali’s right foot.
+
+“Really, Mali, how does it feel? What does it feel like? Girl, boy or Pat?”
+
+Mali smiled at the SNL reference.
+
+\$he nodded, as another little layer of invulnerability dropped to the side, “It feels good. I like how it feels. You make me feel good,” \$he turned \$er head to gently kiss Ana on the forehead. Yet \$he felt some resistance to letting go and answering directly.
+
+\$he had been avoiding saying ‘boy’ or ‘girl’. As if \$he was shy. Or maybe needing, wanting, trying to passively coax another and longer episode of being pinned to the bed, the wall or really anywhere by this amazing creature. 
+
+*Or for Ana to tell me who I am.*
+
+Ana nodded but seemed nonplussed, moving her hand to Mali’s heart, “And here?”
+
+A block of sadness hit Mali. \$er heart felt so… defended… so masculine in the tension around it… blocked off. Mali’s head turned slightly side to side unconsciously like saying ‘no, no’, as the precursors of tears made their way to \$er face and eyes. The the feeling of being gridlocked, frustration and rage. For so long it felt that way here, only on occasion to feel deeply and in communion with \$er heart, if ever.
+
+Ana sensing a difference asked again, “What do you feel here?”
+
+“I’m stuck. Angry, tense. Gridlocked. Angry. Frustrated. I want to both push away aggressively and be embraced to oblivion at the same time.”
+
+“What if all that wasn’t there? Under it?”
+
+Mali felt into her touch. Could \$he take it? Handle it? Ana’s touch was all softness and love. But with a firmness, the same that she had held \$er hip.
+
+“I want you Ana.”
+
+“That wasn’t the question Mali.”
+
+What was for sure that regardless of how incredibly close they were, Ana had some weird boundaries she put. And now Mali was again at the furthest arm-length it seemed Ana could manage.
+
+“I need you.”
+
+“Mali, how do you feel here?” She wouldn’t let it go this time. 
+
+“I told you.”
+
+“Okay, so how about this hip?” as Ana’s hand landed but with more definitive touch than the foot. Like a little resistance. It felt amazing. For a second, erotic, like Ana using that force… against \$er… could take \$er. Wanted her to take \$er.
+
+“Mali, you’re being shy,” Ana cooed.
+
+Mali jolted a little and turned on to \$er side to face Ana. “You want to know the truth then?”
+
+“No, no no, only lies please, damn it Mali,” Ana laughed.
+
+Mali looked directly into Ana’s eyes, “It felt like you could… would… take me. With your hand there. I wanted it. To feel that. Your power.”
+
+“As a boy or a girl?”
+
+Mali’s eyes dropped a layer of defense and tension as \$he looked deeply into Ana, “As a girl, I want to feel you, as a woman.”
+
+\$he felt tears grow. Getting closer, “under it all… my foot, my heart, my hip… my jaw, my back… every part of me wants…” Mali broke into tears, "goddam it!" as they broke and openly flowed. $he was so tired of this game. 
+
+Ana let Mali and $er tears flow until they came through.
+
+“Hmmmmmmm,” Ana almost growled in a tone lower than Mali had heard yet from her, as she smiled mischievously, up to something, “sooooooo, Mali,” as she slowly and carefully moved her hand over Mali’s sex area, keeping contact with \$er eyes, making sure yet seductively.
+
+“So what about here?”
+
+Mali felt sad again all of the sudden. More sad. This could change everything between them. \$er answer to this question. As usual, $he was in \$er head and not really feeling deep enough. This area, now that \$he thought about it, it always made her a bit sad.
+
+It was always the house of cards around which everything crumbled in \$er life.
+
+Ana caught \$er, “Mali, just feel, okay?”
+
+Mali locked eyes with her. Okay. Well, \$he knew. But never with someone’s hand… *there*. In that moment \$he realized this is where $he always had hid.
+
+Mali moaned slightly. Fuck it. “Ana, I don’t want to have to fuck you,” \$he felt tension in her neck and jaw build.
+
+Remembering *that* feeling. An anger. A double-bind. Life’s big goddamned ‘fuck you’… the ‘fuck you’ in every relationship $he’d had, \$er ‘duties’ as a man.
+
+The thing with \$er most recent girlfriends, really ever, fucking as they wanted it was totally difficult and anxiety provoking.
+
+“To *have to?!”* Ana intoned as if offended, and then a second passed, Ana took a deep breath, “Ooooohhhhhhh I get it!”
+
+Mali waited until she spoke again.
+
+“So maybe you just don’t want to penetrate. Yeah. Soooooo,” carefully again, “what *do* you want there? With a girl?”
+
+Mali seemed totally okay with her contact so she aggressed and pushed down firmly and a bit quickly but still with gentle softness, “You want this. You want to surrender to me. You want me to take you.” As she leaned over and forced her lips on Mali, pinning \$er more with her upper body.
+
+Mali only softened and submitted.
+
+*This feels natural. Right…*
+
+Pulling away from the kiss, Ana looked up smiling, “It’s true, right?”
+
+Lock and key. Ana had figured out in minutes the body that had and was still taking Mali years on \$er own to accept much less understand.
+
+All Mali could do was nod. And smile. Ana was simply replaying exactly what \$he wanted. As if seeing who \$he really was.
+
+“So maybe one of the two sides of you you say you have isn’t really what it seems to be…” her eyes darting around for a second, “…real!”
+
+Strangely with those words something shifted inside Mali. Like a permission of the forbidden. When younger it always felt sexual. To put on panties and stylish and body hugging girls clothes. The same feeling that came over every time the ‘feminine’ in \$er body took over. Sensual, erotic, free but so much more than that. Vibrant, alive.
+
+“What’s going on Mali?”
+
+Mali nodded, “Yeah, maybe you’re right.”
+
+“Maybe? Right about what?” Ana laughed as they both seemed to be floating out in their own beings and needed being called back.
+
+“What you just said. It’s weird, I just felt ‘the feminine’ come over me. Hard to explain. Like permission. Like you just said in a way that being this is okay. That it’s as easy as accepting that being a man is just wrong for me. And being a woman… is… being myself… is the right thing.”
+
+“So why do you hold things back?”
+
+“I’m so afraid to make a mistake. It would be a terrible loss, right? For this to be a mistake?” and then \$er heart dropping remembering how masculine and kludgy \$he often felt, “Also I don’t know if I can make it. To be actually seen as female. It’s real to me but not seemingly to anyone else. To follow based only on what I feel inside, against the whole world… I don’t want to be fighting all the time. How do you accept the you you are if no one can see it? When it's not socially real?”
+
+“I don’t want to have to do all that shit they do in San Francisco like, ‘hey I’m Mali… I know look like a dude but you know… I use the pronouns ‘she’ and ‘her’, and I'm really a woman” Mali shook \$er head, part upset, part laughing, “I hate that shit. Power to them, I'm not going to do that.”
+
+Ana nodded and raised her brows prompting more from Mali, 
+
+“All the risk. Hormones, surgeries. The cost. Maybe loss of life. And my body - all the hurt I’d cause it. True. And no promise of anything…”
+
+“What if you just accepted all you are without doing anything else cosmetic? I mean… you’re already in the fight, unless you wanted to go back to be a dude, which by the way, I just can’t see.”
+
+“So its like this,” Mali returning to the topic at hand, “I don’t want to be… what… do… what you just did and then see my face or upper body and see a man. Or for you to see a man. It’s… kinda repulsive.”
+
+Mali wasn’t done “I feel like a female sexually. This is generally where it always would start out whenever I’ve tried my best to ‘man up’. In at most a few weeks this same feeling would come over me and I would want to be taken and receptive in a female way, sexually, get it? That leads everywhere else… to be female.”
+
+“Yeah, so you want to be fucked, and maybe not the other way around. But you can do that as you are, right?”
+
+Mali shook \$er head, “No. No I can’t.”
+
+“Its simply intolerable for me to be that and be a man. Be seen as a man. Like the Christmas gift. The only way this works and feels right is if I am a girl. Believe me I’ve tried, twisted my mind around and tried to look at being gay, guys, and theres nothing. Well, aside from transexual women who are more dominant. But they are female. Beautiful like females…” Mali paused remembering, “and I did not want to be a guy with them. I wanted to be a girl. But they always have wanted a man…”
+
+*Putting it that way I still feel so fucked in life.*
+
+Mali paused from the rant, slowed down and added “The thing is Ana,” as \$he reached to Ana’s far shoulder to turn her toward $er, shaking \$er head, “I get it about accepting all of me. Believe me I’ve tried over and over. I’ve contorted my mind and body into every possible scenario. I’ve found therapist after therapist, fucking fundie religions, and all the new age shit I could swallow that promised to fix me…” Mali trailed off, thinking of the years of this laundry list…
+
+“But never is there any happy marriage between how I feel and how I appear to the world, and when I am feminine, I’m not feminine as a man. I don’t want it as a man. That’s repulsive to me. Wrong. I don’t know why, just because it is. So if I have to accept all about me and accept my physical being as I am, I have to accept that that I am fucked up. I’m an unreconcilable mismatch. If I let myself be female inside and appear as a man… not only it feels wrong but I kill my deepest dream.”
+
+Ana turned and raised her eyebrows.
+
+“To be with and have a deep connection with an amazing woman.”
+
+Ana nodded, “Mali, before I came I did a bunch of reading on ladyboys - uh, transgender women.”
+
+“Really? Why’s that?” 
+
+“Honest?”
+
+“No really, I prefer the lies too Ana,” Mali smirked. 
+
+“I think ladyboys are kind of… hot,” Ana smiled. 
+
+“How come? I mean, what is it about us… uh… them?”
+
+“Us,” Ana stated defiantly as Mali in quick succession quirked an eyebrow and a shoulder.
+
+“So, it seems that on certain days very early in a baby’s development, in the womb, if certain events happen or don’t happen, basically, the child’s brain’s sense of its gender gets set to the opposite of the… actual genes.”
+
+“And that turns you on?,” for which Mali received a slap on the shoulder.
+
+“You know, this is actually quite scientific apparently now. So the child’s brain has a gender while the body continues developing in the gender the genes think is right.”
+
+Mali was silent, just listening for once.
+
+“Now the interesting thing here, from what you’re saying, tell me if I’m wrong, is it’s been your body, as you say, visceral sensation that tells you who you are and how you feel, right?”
+
+Mali nodded.
+
+“So, maybe what your body feels and says you are…” Ana paused not to gather thoughts but for emphasis, making laser direct contact to Mali, “is what you really are. And the rest is just… bullshit.”
+
+This felt right to Mali. \$he wanted it to be right, at least. Like all those times when the ‘fem’ would take \$er over. \$he always wanted everyone, her therapists, to be wrong. \$he wanted them to tell \$er it was okay and \$he should go for it. To follow and search for the way for these feelings to be right.
+
+“The bullshit is who you’ve been told you are. How people treat you. The only thing thats keeping you as a male is shit, ideas, concepts in your head, culture… and giving a shit about whats out there… unfortunately and understandably focused too much on whats around you than on what you are inside…”
+
+"Yeah, but one has to live in the social world."
+
+Ana nodded and shook her head, “Shit, we’ve gone through your whole body and I can tell you regardless of what you didn’t say, theres nothing in you that actually feels male, other than the frustration you feel and the anger over being told that’s what you are and treated that way. And the parts of you you feel are ugly… And in your own words, those are the only things that you relate to as being ‘masculine’. And the only reason you really feel that is because you've been perpetually misunderstood socially.”
+
+Ana continued, “and the things you dislike structurally - if we look at what they are - your face especially… were all shaped by testosterone thorugh puberty. Biology that went in a direction other than what your brain and how you feel tells you."
+
+Ana stopped. Took a breath. And went in for the kill.
+
+“Mali, I think you’re just letting the world and conditioning hold you in place… and maybe that worked in the past but it’s not working so well anymore… is it?”
+
+Mali knew nothing had been working well at all. The Hua Hin insanity was still too close for comfort. End of rope kind of discomfort.
+
+“Mali, you’re so worried about changing *what you are* but maybe to be who you really are you have to change to be that? Because even if it seems violent to make the changes, to not make them might be even more violent now that you know the truth.”
+
+Ana continued thoughtfully, “And maybe… maybe now that you say it, it’s why you can’t reconcile them. Because they can’t be reconciled. Because one isn’t really you. Because one of them isn’t real — not at all. And to make things worse, it's the one culture and society would have you hold in place. It't the one that is kept in place if you listen to anyone but yourself.”
+
+She turned, pulling her legs up cross-legged and fully facing Mali, and reaching out for \$er hand, as if as a signal that she was done and it was now Mali’s turn.
+
+“I always felt like a fraud as a man. I have no compass as a man, only my upbringing and what I think I’m supposed to do and be. Constantly self-conscious but more in the way of a liar trying not to get caught than of someone who is just struggling to be themselves… does that make sense?”
+
+“The funny thing is, as I’ve unwound all this tension in me and the more my posture improves and I stand up straight… Well, it’s like I said to my ex-girlfriend - if a man truly lets go of all the tension he holds, wouldn’t he also feel like a woman? That's how I've always felt. Maybe I meant that because its me. The more open I am the more female I feel, and that's just what it is.”
+
+They sat for awhile, Ana wanting to let this sink in with Mali.
+
+But soon she couldn’t help it and broke in, “So you like tgirls?”
+
+“Yeah, some. But they’re elusive, I hardly ever meet them. So far those who I have met and feel attracted to seem to want men only.”
+
+“Hmmm… I think tgirls are sexy. Well, the topic came up at the bar when we were planning this trip! Jessi and Natalia would not let it go!” drawled Ana laughing, “So I’m sitting here with one right now?”
+
+It was strange but all of the sudden all the past did not matter. That person who had and would hold on - to be a man - for a woman, for the relationship, the family, the house, the illusion like with someone such as Cat. Mali did not understand why this specifically was coming to mind now. But… it just felt like \$he couldn’t remember how to feel that need, remember the compulsion of that dream.
+
+All those old hopes and dreams that kept her among other things, tied down, sitting on the fence. She thought about Hua Hin and that horrible weekend. The fucking Chinese Tune. In fact now she tried to remember what it was she had wanted that kept her from… her. And couldn’t remember it. Not emotionally. Just as something \$he mentally knew she used to feel. Mali nodded.
+
+*Going to hell was just going against culture. Fuck culture!*
+
+It all fit now. With Ana here. She was the only one who could have worked this out. She was the missing piece.
+
+“As long as you never let me go,” were the words which came out of Mali’s lips, not really understanding them, “being you know, with you and… uh… like you.” She paused as their eyes locked briefly but strongly. A loaded moment, something beyond connection.
+
+The last time \$he had felt that was with the blush that had overcome her first to-be girlfriend and Spanish teacher, when $he had also, not knowing what \$he was saying, in answer to the question in class - to practice the subjunctive tense - of ‘who would you be if you could be anyone?’. The answer was, ‘you Marisela, I’d choose to be you.’
+
+*I should have known then.*
+
+So many years… *but it was all innocent then. I didn’t know it was weird to want to also be her… I thought it was normal. Just as putting on clothes… female clothes.*
+
+And ironically and only apparent now, she realized that it was actually that same heartbreak back then, that kept her trying to be a man. The same heartbreak that now seemed gone from her soul.
+
+\$he smiled.
+
+*What had been the whole Cat train-wreck than a last ditch effort to hold on to that dream?*
+
+A dream clearly meant to slip through her fingers, again and again, until she owned up.
+
+“Still, when I see in ways how close I am in many ways to being a woman... to a woman with the same physique as me, it makes me want to go all the way, really mostly my face lacking only. Its hard to explain. Its so attractive.”
+
+“Uhuh.” A definitive ‘uhuh. “Maybe with me you’ll learn to love yourself. *Really* love yourself. Instead of keep trying to love and accept what you really are not.”
+
+“Is that another Ana riddle?”
+
+“Koan. A koan. A Japanese riddle you have to go insane meditating on. Once insane you make sense of it!”
+
+“Thats encouraging,” Mali laughed, taking Ana’s nod for her own, “given the circumstances, I must not be far off…”
+
+
+
+
+
+# Reflections from a Motorcycle
+
+DMD took leave of the quirafono and walked out to his motorcycle, parked out in the back parking structure, where there was a nice mix of warm afternoon sun coming in among the shate on the west side. It’s something perhaps many patients don’t think about. Surgeons are people. And long operations, well, everyone needs a break and to nourish themselves. Hence the team. The fact of his regular visits here to 'disappear', here, in the parking structure, at the edge where he could reflect and look out upon the city, has surprised everyone he’s mentioned it to.
+
+He did not even remember how this ritual had started… maybe it had been to go the last place he could be physically found, his pager aside… as his in-demand reputation had grown and he began to be accustomed to regular interruptions.
+
+He mounted his motorcycle, picking up his black-shell helmet and hung it by the strap on the handlebar. Smiling, he shook his head. Who would ever have thought? He liked to remember the story. A story that was still being written, aside from in his life, on the heads and faces of all of his patients.
+
+It felt good.
+
+He had been originally destined it seemed to become a bohemian hippie-type. Dreadlocks, Jamaican clothes clad his undergraduate school years. School, the only thing that seemed traditional about him. Well, until someone asked his major. He had loved the shock value, even more because he loved what he’d chosen. Not even art.
+
+A sculpting major. Molding figures and faces.
+
+It had actually been Castana’s face he had been first trying to replicate. Which brought to surface what seemed to be a latent obsession.
+
+To sculpt the way he intended, one had to keep in awareness the bones and structure under the face. The complexity of what creates a beautiful face. The whole. Symmetry, balance. Bone structure but also the skin and distribution of muscles and fatty tissue, the way the skin was wrapped, and differently over the distinct areas.
+
+His first project endeared him to Castana, then a pre-med student, and he just never stopped. Walking through the world, seeing depth into everyone’s appearance with these lenses. He would pick through Castana’s A&P books pouring over the bones and structures that made people… how they are in the physical reality.
+
+And logically found himself soon in the introductory anatomy and physiology class at the university.
+
+He was introduced at a point by his anatomy professor who knew he was in the class for artistic purposes to a police officer who had approached the university for help in reconstructing a model of the face of a severe burn victim, who had died locked in a room apparently by his captor, and could not be identified.
+
+Having successfully completed the project and learned so much more about the distinct aspects of making educated guesses based on the known genetic makeup and what remained physically of the victim, his level of consideration of the human body came to a new level.
+
+“Did you know there’s a doctor here that does as a surgeon what you do with clay?” the detective had asked causally over dinner on a day they had worked late, as he was now being fed a series of such type cases - and even being paid for the work.
+
+He had never considered this. Well, nor do many people.
+
+Unless they happen to be…
+
+“What do you mean, like accident victims?”
+
+“That, yes. And people - often children - who are born with some cosmetic defect.”
+
+“Do you think I can meet this doctor?”
+
+She nodded. And so accelerated a straight albeit asymmetric shift to the operating room from his chosen non-career career. Of course to the shock and glee of his parents and family. Not to mention Castana who was elated.
+
+Having been amazed with the before and after photos and over time getting introduced to actual patients - before and after, and having cried on multiple occasions having had the opportunity to meet the patients several months post op, it wasn’t long before the trajectory of his life shifted. Biology and pre-med classes picked up. The dreadlocks and clothes did not matter anymore and soon fell away.
+
+Medical school. Specializing first in plastic surgery. Then adding on a specialty in maxillofacial surgery. As his mentor explained that what he’d seen and wanted to do - did not just involve the bones and soft tissue of the face, but working with the many sinus and other cavities in the skull, which of course, meant working in close proximity and very carefully around the brain.
+
+His career started in the trauma unit. In fact after his first residency, it was there, seeing the kind of damage that accidents could cause on a person’s skull, he went on to study maxillofacial surgery. He was already a competent and up and coming ER surgeon but he felt compelled toward the specialty.
+
+Maxillofacial surgery. Such a surgeon was required in the cases of deformed heads, acute damage. Really, the way he saw it, and of course the world did not always hold plastic surgery itself as such a high ideal, labelling it as often frivolous.
+
+But he saw first hand from his first mentor, cases where without maxillofacial surgery, the deformities could last the rest of their lives. Or children born with a deformity could be helped to fall into the normal distribution of face-head bone structure.
+
+When months later he first saw a patient who he’d been part of operating on, who now had a very normal, attractive face, he could not hold the tears back. Returning home to his then girlfriend, Castana, he told her of his calling. She shook her head with a smile, saying, ‘here we go again’. They’d both been through medical school and residencies together.
+
+As Castana’s career had started to take off, DMD finally finished school and voluntarily entered a second residency.
+
+And the next ten years had been a blur as he became the go- to reconstructive surgeon in Buenos Aires, as he was now in the elite handful of such specialized surgeons in Latin America, his name also getting to be known world-wide. Also beginning to assist in the training of others.
+
+And then… with a call one day, his life changed again. He would not stop the trauma surgery, but a new direction opened that really was fledgling to the world. A new type of ‘reconstruction’. Again, often questioned as necessary. But not for the individual.
+
+Reconstructing the female appearance of male to female transexuals.
+
+Although the shift to medicine had been over much time, he had not realized it, but not lost on his patients was that what made him different is that he was first an artist then turned technician. He could see what he’d like to see artistically in the bones, then use his technical knowledge to get there. Different than most surgeons who are first technicians and then run after having some sort of aesthetic feel, most of whom never attain it - out of lack of passion or having not much natural sense. Or if they do, they make every patient look the same according to their internal schema of beauty… which is often, given that most of them are males, a very personal choice.
+
+As happened and still does with some famous doctors in Asia. As every patient comes out looking more similar than not to all the doctors other patients. Where in DMD’s case, although there is a common aesthetic sense, not one of his patients has really any close resemblance to any other. And more than that, when he’s done, they look truly as a feminine version of their previous self, to the point where the situation happens where people who knew the person previously often don’t see so much of a change, but the contrast being that anyone who meets the person for the first time assigns them visually to the correct gender.
+
+A doctor in the USA had performed the first known - or publicized - facial femeninization surgery, involving a full forehead reconstruction. Which meant actually removing, shaving and replacing the frontal sinus bone. He called it reconstruction and was adamant about it as such persons, if they were able to bypass puberty, would not have had to have such a surgery: He was reconstructing their original face to the way it would have been before the testosterone took over, and in the words of many transgender women’s own words, ravaged their bodies.
+
+For DMD if there was any doubt of the life-value of such work, it ended within weeks of his first facial feminization surgery. With reports of changed lives. Where sexual reassignment surgery - the infamous and often vulgar sounding words, ‘sex change’ - although widely sought too, would always be plagued with questions of value to risk and trauma -- in the sense that it is less obvious socially. But in terms of facial surgery — his facial surgery, it was life changing just about categorically and pervasively in the social sense.
+
+As long as the person was truly transgender, significantly dysphoric. And so also began his vetting process, and building his personality and way of interacting with potential patients, to assure that he was operating on the right people. He had plenty of other non-transgender people who needed his help. It wasn’t that someone with a feminized face couldn’t return to live as a man. But what was the point to that?
+
+So though not something the psychologists or organizations guiding the world on transgender issues mandated, it was DMD’s own vetting process based on his own view of the world.
+
+In the recent years, half the week, he worked in the ER on accident and birth defect patients. And on the other days, he launched his own surgery practice and began to establish what would become an international reputation for facial feminization. For results that looked natural, as if the patient had been born that way. In either case, helping his patients become, return to, being physically more authentic, albeit invisible, off the radar to their would be detractors.
+
+And so it was. Why was it he always came out and sat on his motorcycle to eat his lunch and how many times he remembered this story. It made him happy, his life and the choices — and certainly sacrifices — he made to get here. How many people get to solidly realize their professional life? Yet at the same time, his followed no other plan than following what over time emerged as his passions.
+
+He chuckled, as he called it ‘the no-plan plan’*.* How many doctors could say that about thier years of study?!
+
+
+
+
+
+# Farang Kon Katoey
+
+“Farang kon katoey,” is what Mali heard, and then the ensuing laughter between the couple that had passed them. The woman said it. It meant literally “foreigner ladyboy person”.
+
+It was one of those things. The first reaction for Mali was that it didn’t matter, didn’t bother \$er nor should it change anything. But the reality is that it always eroded. Within seconds, minutes. A downward spiral. 
+
+“What’s wrong?” Ana picked it up and looked concerned. “Stupid.” Mali shook \$er head.
+
+“I’m stupid, huh?!” Ana snouted and shrugged into a frown.
+
+Mali felt angry. Almost too overwhelmed for a second to deal with Ana.
+
+“No, no. My reaction. The couple that walked by. I heard her say *foreigner ladyboy* and they laughed. “Did she say it to you?”
+
+“No, just as they passed by.”
+
+“Do you know for sure it was about you?”
+
+“Kind of… pretty. But no, not for sure. How do you know for sure shit like that but you keep hearing it whenever you go out?”
+
+“Do you know even if she did what she meant? The meaning?”
+
+Mali was transported to the past, some years back, the first months of dressing openly more femininely in NYC. Mali - then MK - was walking down Broadway with the big wool scarf after a dance party.
+
+“Fucking faggot,” a man in a car yelled as it passed.
+
+It was the most blatant thing ‘he’ had heard then to date. On Broadway in NYC of all places. Back then he wondered if this was this a precursor for the future? Because it felt bad. Not even wearing a dress or anything.
+
+The fact was that his body tensed up a bit. A lot. Breath came in, it was fear. Then he felt angry. Mad. Impotent. A lump in his throat developing and swallowed, something in him knew better than to let out and show.
+
+But below it, what was unsaid inside was what was truly toxic, encoded into every like situation and perceived threat. With unspoken feelings. Of the worst kind. Everything against self because the world…
+
+*... doesn’t tolerate me.*
+
+Mali didn’t even fully understand the emotion after all this time. Being called a ‘ladyboy foreigner’ wasn’t such a bad thing. But deep down it was dehumanizing, feeling objectified.
+
+“Mali?!” Ana clicked her fingers to pull \$er back present, “What’s going on?”
+
+“Sorry, I was just remembering something.”
+
+She brushed against Mali disarmingly and smiled up into \$er eyes, “Care to share?”
+
+Mali shook \$er head. It felt embarrassing. To get ruffled and upset about such dumb things.
+
+It was like \$he could not win in any other way than pretend \$he had not heard. Any action or reaction validated the bullies. \$he had learned to hold everything in in grade school and since.
+
+Lock down, avert the gaze while pretending not to, tense up, hide.
+
+*I hate myself.*
+
+Mali thought \$he’d said it in her head. “What?”
+
+“Oh, just reminding myself of what The Face told me, that I hate myself, that is the problem.”
+
+Ana got quiet. After a while she spoke again, in her out of this world confident way, “I think maybe you just hate the not-you who you’ve spent your life being…” her voice trailed.
+
+“… and maybe you’ve been too isolated to feel strong enough to move forward.”
+
+It was good and well. Ana was amazing, but Mali was feeling weak inside. Like in the last few days Ana was wearing \$er down. \$he wasn’t sure what would be left and it made \$er afraid.
+
+*What is this really?*
+
+But at the same time everything still felt like home.
+
+*This was different...*
+
+*Equally strange.*
+
+
+
+
+
+# Soi Katoey
+
+Later that evening...
+
+“Do you think she has one?” Ana whispered in Mali’s ear. “Jesus Ana…”
+
+They both knew what she meant.
+
+Mali shrugged. Surgery was expensive. They were visiting Soi Katoey in Bangkok. $he and Ana had briefly had the conversation that many ladyboy’s didn’t have *the operation* as clients wanted that ‘something extra’.
+
+*“*So does it *work*, you think*?”* Ana was unrelenting.
+
+“I think someone’s mind is in the gutter,” Mali elbowed Ana lightly in her ribs.
+
+Ana jabbed \$er playfully, “come on, we’re *here!”*
+
+Then Mali spoke the truth \$he knew, “Okay, but it’s not just that, but does she *want* to use it?”
+
+“But if you had *it* why not?” 
+
+“If you had one you’d use it?” 
+
+“Fuuuckk yeah,” Ana grinned.
+
+“You say that but would it really feel right for you?” Mali used a bit of the emotion of \$er own feeling pushed on to add, “And if you were expected to? And in the way everyone seems to think you’re supposed to?”
+
+Ana now shrugged herself. She’d never considered it really, “I’d be curious. But… no. Not much of the time. But sometimes, yeah, I’d do my girl,” she laughed and shoved Mali once again, playfully.
+
+“Girl?”
+
+Ana shook her head and just smiled ironically.
+
+Mali liked where this was going with Ana but there was the real reality here, “so many trans women, they keep off hormones to stay functional but it’s for others, not themselves… I mean…”
+
+Ana nodded. It was regardless of her attraction, a new world for her but she was getting it. After a pause, “oooooh, I get it, so they might want more to have it used on them then to use it themselves.”
+
+Mali nodded, “call me weird… I want a girl to mean it.”
+
+Ana looked deep in contemplation as Mali continued, “…and regardless if she’s trans or a genetic woman. I had a girlfriend who was awesome and wore a strap-on, but I felt like she was humoring me.”
+
+Ana continued nodding now more pronouncedly in understanding and agreement, and speaking, “A girl with a dick be it actual or metaphorical… I want to feel her power.”
+
+Mali grabbed her shoulder and pulled her to \$er, “yes, yes, yes, that’s exactly… it.” 
+
+They both smiled while looking out, Mali added fuel to the fire, first stating in a seductive serious way, “a girl who can take me, and who I feel safe with by her side,” then more playfully “but before… I also want to know how *big* she is,” while both simultaneously snorted and cracked up.
+
+“God, but if *she* did!” Mali exclaimed quietly with a smile.
+
+“Yeah, she’s striking,” Ana replied, this time not referring to sexual parts but this woman was quite slender, feminine figure with  some beautiful touches masculine in a mainly feminine face, a scowl and furrowed brows adding hotness to her way. Her long black hair was tied back showing some slight earrings.
+
+As they watched her with her friends, it was also her demeanor that was all girl. Not girly, just soft, luxurious. She just seemed nice in addition to being attractive to both of them.
+
+“This could go downhill really fast,” Mali shook \$er head. Ana looked over and eyed Mali.
+
+“I hate it. But from experience, here and in any bar like this, it tends to be all about money and so much here is that.”
+
+Ana pouted, “Feeling cheap and used. Yeah.”
+
+“Exactly. It’s not my thing anymore. I mean… when I did, it was always for exploration more than anything. When I understood almost nothing about myself.”
+
+“So you’ve explored, my friend?” Ana’s eyes lit up with a glimmer as she looked now at \$er, “and you’re done?”
+
+“I think so, I mean,” \$he contemplated, “I’m really behind in everything… I haven’t, Cat aside, been with anyone for some years now, but I want it to be real. Even if it’s just a one night stand. There's no money that can buy the kind of 'happy ending' I need.”
+
+“Yeah. Agreed.”
+
+“Real passion, not paid for,” Mali laughed, “call me weird…” They continued playing eyes with the beautiful woman. To Mali it was totally fun and easy, with Ana there. Did they look like a hetro - well, metro - couple or two women? That was the problem in \$er brain though. But Ana made it safe and easy. And because she was there at \$er side, there was no pressure to do or force anything, just to be.
+
+Then the girl did an interesting thing. At the relatively empty side of the bar where she had moved with her friends, she turned behind her as one of her friends had gotten up and walked back to an even darker area, hammer in her hand.
+
+They all watched the woman hit a nail on something with the hammer, and the two others cheered.
+
+Ana turned to Mali, “what’s that?” 
+
+“Let’s find out, okay?”
+
+As they made their way over, the tall woman, now finishing her own turn with the hammer turned to acknowledge and smile at the two.
+
+“Sawadee ka,” Ana smiled proudly of the few Thai words she could speak before turning to English, slowly, “what are you doing?”
+
+The woman shook her head, gesturing as if to make up for her words, “hit nail, less hit win.”
+
+Ana nodded. 
+
+“You try?”
+
+Ana looked at Mali questioning, who shrugged in response. She opened her hand and was passed the hammer and handed a nail. Digging the nail into the forgiving wood, having steadied it, with laser focus raised the hammer and hit the nail squarely sending it all the way into the wood. Seemingly without effort. Total grace.
+
+She smiled, and the women cheered, smiling back and clapping.
+
+“Win!” the tall woman smiled, turning fully to Ana and Mali who now stood still a bit on the outside of the group. She looked back and forth between the two, scrunching her eyebrows a bit as if confused. Then the woman smiled, as if having figured out a complicated puzzle, “you two… different?” then pausing, “ah, you ladyboy, chai mai?” gesturing to Mali. Mali nodded.
+
+“And you,” she looked seductively at Ana, “you, you... friend.”
+
+It was not a question but a statement, which hurt a little in Mali’s heart.
+
+Ana shook her head, “no, I’m Mali’s girlfriend, na ka” adding proudly the ‘na ka’ at the end of the sentence as she’d heard Mali do.
+
+The woman shook her head, “ladyboy no like girl, ladyboy like men.”
+
+It was Mali’s turn to shake \$er head, “not here.”
+
+Ana beamed and blushed at the same time, while at the same moment Mali felt jeopardy. If \$he’d had enough awareness, it was fear and sadness. That maybe \$he’d discover Ana being separated from \$er, to be with this beauty in front of them. As if on cue, Ana reached to hold Mali’s hand.
+
+“Ohhhh… girlfriends?” the woman giggled.
+
+Mali looked to Ana as Ana nodded, “yeah,” then repeating, “chai, chai ka,” using yet another word she’d learned.
+
+“Foreigner… bpen… strange,” their new friend stated.
+
+The woman cocked her head, “I Sawanee.” She raised her hand what looked like to shake but then patted Ana’s upper arm, while looking at Mali.
+
+“Do you work here?” Mali spouted without thinking. Innocent enough.
+
+“No, I here to see my friend. They work,” she raised her hand motioning to her two companions who were now in a nail pounding duel.
+
+Ana smiled, and inclined in to her, “I’m sorry, but do you mind me asking… we can’t tell, because you’re so beautiful. Are you ladyboy?”
+
+Anywhere else that would have been a shitty question but they were in fact in a transgender bar.
+
+“Katoey ka,” the woman smiled and laughed disarmingly, “yes, I ladyboy. I like men. Thai ladyboy like Thai men,” she emphasized.
+
+“How is it here to live as a ladyboy?” Ana inquired.
+
+“So many problem, of course. But I like. Easier than America.” 
+
+“Really? You've been to the United States?”
+
+“For few months. But it stressful. Men talk to me and think I woman. It was hard. I had to tell them. Here, we part of culture. People know us. I don’t have to explain. Like me, I your friend. Someone not friend and we left alone. Laughed at but left alone.”
+
+Ana nodded along with Mali. It was a new way of seeing things for both of them, despite all of Mali’s time there.
+
+Ana wanted to hear more, “So you don’t mind if people don’t see you as female?”
+
+“Well I pretty lucky. Body pass easily. Many don’t. But I tall. Thailand few tall women no heels,” she laughed huskily, “I happy be who I am. I no-op. No sex change. Before want. Now not care,” The woman paused and then resumed, “Thailand, have men, women and katoey. It easier, I think. Not two. Three.”
+
+“So it’s like you’re a third gender then, really… in your culture?”
+
+“Ka, it different here. Farang - foreign people, say Thailand have many transvestites. But transvestite kind of mean man dressing as woman. I not man dressing as woman. I am who am. Nice here at least acknowledged. Don’t care not called woman but no one ever call me man, I not that. And stressful have to be perfectly woman too, and be seen as.”
+
+Right then strong arms reached around Sawanee’s back and grabbed her into a loving hug. She was another tall being, stalkier, with a pretty but clearly more masculine face. But painted with a rainbow on one cheek and a few dangling bead braids from her rather short hair.
+
+“Saaaawaneee! You the best!” she crooned as she turned around. She was clearly full of life, happiness and esteem. So authentic, regardless that she was less passable, in Ana and Mali’s eyes. She was authentic.
+
+“My friend” Sawanee turned around to peck her cheek, “I’ve missed you, it been so long!”
+
+In a second they were arm in arm over each others shoulder and facing Mali and Ana, smiling. Mali couldn’t help but smile at the new friend.
+
+“I Nong ka,” the katoey friend swooned and curtsied, with a flamboyance and spirit beyond any genetic woman.
+
+“Nong want be Miss Thailand this year” Sawanee teased as Nong gently and effeminately slapped at her in payment.
+
+“But I do, can’t you see how beautiful I am,” Nong almost sang, fluttering her eyes.
+
+In this group Mali finally felt like \$he belonged. Regardless of being the ‘strange foreigner’, and was accepted.
+
+*How can I have lived here most of a year and in a couple days Ana opens the world to me?*
+
+
+
+-----
+
+
+
+As Ana and Mali walked into the late night humidity, having said goodbye to their new friends, Ana turned to Mali, “Do you still have any doubt that there’s *anything* it’s not okay for you to be?”
+
+“Thai ladyboy like Thai men,” Mali repeated in a Thai accent, laughing.
+
+“Good thing you not Thai ladyboy,” Ana snorted, “American ladyboy like whoever they want! But seriously, Nong - she doesn’t get more feminine or more masculine looking at same time… do you think *she’s* a joke?”
+
+“Nong’s confidence in who she is is rock solid, she’s fabulous. Totally fabulous. If I could only have the fabulousness in her pinky, I’d be fine!”
+
+The warmth and authenticity of their new friends was lighting a fire and warming Mali from the inside out. It was a contagious okayness that \$he’d seen in Thai movies and at times on \$er first visit here. Difficult to put the feeling in words but the combination of authenticity, the support of friends, belonging and being in a society where you basically had a place, reasonably accepted, not threatened with harm. It was what made her come back here, and made her  keep fighting.
+
+\$he voiced, “I just want to be myself, from now on. All of it. Be fabulous,” pausing to contemplate, “And there is so much more, I don’t even know the end,” then adding, “It’s amazing, here, Sawanee, Nong and all them, like they show me another possibility of being right in myself.”
+
+Having said the words, the feeling of being free, hopeful and excited to be so much more took over in Mali. It wasn’t new but $he had forgotten how good unconditional acceptance could be. To be fabulous.
+
+Mali felt determined now, as \$he was, face and all, to find some way to be okay with \$erself first before taking more steps in life.
+
+
+
+
+
+# ~ TRUTH ~ 
+
+
+
+# Girlfriends
+
+Cat and Koona had made it back to Cat’s condo which she’d also moved to in the last year. Another new experience. Koona 2.0, over at her place. It felt good. Different. Right. Koona approved of the ‘digs’ and suggested that they consider always have both a klong hideout and also somewhere upscale.
+
+Koona was sitting one leg crossed over the other, laid back on the couch relaxing. Cat sat, having joined her. The view of the late afternoon had changed into evening as they’d just sat, talked and relaxed.
+
+“So, my friend, we spent all day together out there in the mall, on the street, with your hand in mind. How do you feel?”
+
+Cat smiled but then got afraid. Will this last? It was just too good.
+
+“Amazing. So wonderful and natural, really, I’ve rarely felt this good in my own skin out in the world,” she paused, adding, “So good I’m kind of afraid,” her anxiety getting the best of her and flopping over to come close and put her arms around Kooona.
+
+Koona nodded and smiled enigmatically, “Yeah, I get it. I remember when I first… uh… came out and spent the day with my first girlfriend. It’s kind of like you said. I thought it was going to be a big deal but it ended up being so… easy.”
+
+*Her first girlfriend…*
+
+*… could have been me…*
+
+As if reading Cat’s mind, Koona spoke softly, “You know Cat, it’s good things are the way they’ve been. I mean… I’ve grown so much and I think matured, it’s better… I mean, I know I’m still never perfect, but at least I won’t inflict stupid wounds I had to learn the hard way…”
+
+Cat nodded. It actually felt nice that Koona was ‘ahead’ of her. It felt right. She had no desire to explore like Koona had. She only wanted *this*.
+
+“You know, I’ve been thinking, what’s so beautiful is we already know each other so well.”
+
+“Yeah, as friends. But we’ve so much to talk over, you know? Don’t you think?”
+
+“What do you mean?”
+
+“Well, like the things couples talk about… how to live, family, friends, plans…”
+
+Koona nodded. Mature love. She suspected at some point - even before Cat’s return - that there was another page beyond the relationships she’d had. Beyond sex, companionship and even shared interests.
+
+“Yeah, you’re right,” she was thoughtful, “you know, why don’t we play a game tonight. We can write down all the big things on a paper, right? And then we can guess what the other will say. And we can't cheat because they are already written out."
+
+“I hope we survive the evening,” Cat squinted.
+
+“Cat, but that’s the point. Let’s find if we have any dealbreakers.”
+
+Cat nodded, “Let’s play.”
+
+They ordered pizza. Wrote, played, questioned, clarified and laughed over the next few hours.
+
+And at some point they’d run out of topics, but… 
+
+“Okay, where should we live? Whose house?”
+
+“Why don’t we have both houses and we can go back and forth. You know, too, it’s nice sometimes to have space. And then I can invite you over after a couple days for a hot date.” Cat surprised herself. She’d never been clingy. Very independent but it felt like heresy to suggest space and away at times.
+
+Koona considered, “Yeah, I like that. It’s kind of more how life is, you know? The sun and moon, seasons. It seems so much like people latch onto each other and they smother each other and really,” her eyes teared up, “Cat, I’ve longed and waited for you for so long, and I love you so much, I’d never want to do that to you. I know you *just a bit,*” she shook her head, “Heck, you’re name is not Cat for nothing!”.
+
+Cat smiled, pulling close to Koona to plant a soft kiss on those amazing lips, “I want to be good for you. For us. Both of us.”
+
+“A happy Cat is a happy Koona,” her beautiful friend smirked.
+
+So what happened next surprised her just a bit.
+
+
+
+-------
+
+
+
+“Will you be my girlfriend?” Koona said casually as they strolled down the late evening street.
+
+At that Cat stopped walking, causing a wave in Koona’s body that was still moving forward by her arm.
+
+“*What* did you just say?” Cat intoned.
+
+Koona smiled sheepishly and pursed her lips, averted eyes now looking up to meet Cat’s. She nodded. For everything she’d been through, and how right things felt now with Cat, she felt extreme shyness and jeopardy. The same she held, catapulting her back to that fateful poolside day after which she felt she’d lost everything.
+
+“Cat, I love you. I want you to be my girlfriend. I know it’s only been a few weeks, but we’ve had most of a life together already and I don’t…” her words trailing. What was this impulse driving her? They *were* together. Why did she need more? Now? After a second, with her head down she shook her head and smiled again, looking back into Cat’s brown eyes, “I’m sorry. I realize I’m still so afraid to lose you again and for some reason… it’s stupid I guess… that knowing you’re my girlfriend makes me feel… more secure, but I know… that’s stupid.”
+
+“No.” Cat’s word was strong, harsh and forceful. Like a punch.
+
+“What?”
+
+“No.” Cat paused. Knowing she was teasing her friend with the ambiguity.
+
+Koona looked confused. The too recent and familiar hurt inside reared its head but she tried not to show it.
+
+Cat smiled, “I said no. No… It’s not stupid,” shaking her head, “But, you have to ask me appropriately, Koona” she winked her trademark and came close to gently nudge Koona’s shoulder with her own.
+
+
+
+
+# Aussie Ape Man
+
+*If someone calls you a buffalo, just put your hand on your backside and see if you have a tail. If you don’t have a tail, you’re not a buffalo.* – Ajahn Tong Sirimangalo
+
+“You’re just a fucking man!,” an ape with an Australian accent passed by, stared fixedly for a moment at Mali, continuing quickly away in the ebbing crowds, half entering, half leaving the mall.
+
+Walking the long entryway to the mall, Mali had gotten a bit separated from Ana and ahead of her. But Ana heard it along with everyone else around. If they understood it or not.
+
+The big man did not stop and kept on walking. There were so many people around it wasn’t like Mali could easily follow to retaliate.
+
+*Even so… what?*
+
+*Probably one of those guys with a 20 year old Thai wife. Only a westerner could be such an asshole.*
+
+A drive-by. This was more direct, but that’s what Mali had started to call it when either walking by others or others in passing \$he heard words and laughter. It was the worst, because it was not direct, nothing in \$er face, and saying or having any reaction made everything worse.
+
+*Even this one…*
+
+*If I react… I’m a man… I’m doing what the asshole wants. I would doth protest too much.*
+
+So you do nothing.
+
+*But how can not one react to being treated that way?*
+
+Mali felt tense, \$er neck forward, rigid, angry defensive. Composure \$he didn’t seem to have control over once provoked, even with all \$er work. All the things \$he associated with the feeling of maleness. Everything that \$he associated and knew about being a man seemed to be about being angry and defensive.
+
+“What the fuck,” \$he yelled. \$er voice now lowering to \$er lowest male tone, not by choice but reaction. Which made the feeling of embarrassment even worse, like a triggered self- incrimination, a self-detonating bomb. No way to win.
+
+*Always a fucking downward spiral. God dammit!*
+
+She remembered how afraid \$he had felt over the years, really without knowing it, writing it off to being self conscious in fitted, women’s clothes.
+
+The people around \$er there seemed to pretend nothing happened. Mental erase.
+
+*Shit, I wish I could do that!*
+
+Ana quickly caught up, “what the fuck!” as she looked back at the disappearing crowd.
+
+“I need…” Mali was so tense and clearly choked up but \$er anger and outrage was covering any true awareness, “I need… let’s get the fuck out of here. I don’t want to be here.”
+
+Ana grabbed Mali gently but firmly by the arm and took the lead through the maze of shanty store stalls that would soon lead them to the street and a small open square.
+
+“But I can tell you one thing, Ana, I know I’m twisted up right now… but this is actually easier for me to deal with than the completely passive and constant drive-by’s and laughter. Because this is solid. I can say *fuck you* to it. Its the other completely passive aggressive shit that eats me up minute by minute when I’m in public.”
+
+As if to punctuate, they passed an outdoor food stand with a bunch of tables and younger men of school age seated.
+
+Mali heard as they passed, “farang kon katoey,” while the boys erupted into laugher. \$he stared back at them what felt like angrily. Full eye contact. The boys quickly quieted down and averted eyes.
+
+\$he had to get out of there, soon, \$he was close to violence, and it would go badly.
+
+*It would be almost easier to deal with direct violence.*
+
+Which was extremely rare for \$er.
+
+*Something I can push against. But this shit…*
+
+This is what made her hate men. Particularly men in groups. As generally, alone, they never said a thing. Except for big Australian assholes…
+
+*… in a crowd and they know they won't stick around to be accountable…*
+
+“Mali, hold on.” Ana held fast to Mali’s forearm and did not budge, causing Mali to stop.
+
+“What?” Mali snapped. \$he was in her annoyed-rage pattern which often felt like a torch in dry forest. At such a point anyone nearing or engaging was sure to get seared with it… Point beyond caring for any damage, only to protect herself and get out.
+
+*Just get me the fucking fuck out of this goddam place. Now.*
+
+
+
++++
+
+
+
+“Do you like me?”
+
+Ana stood fast and held her grip on Mali now that they were in a quieter area, away from things.
+
+“Why are you asking me that now?” Mali still had this fireball combination of rage and futility to discharge… and unfortunately as \$he knew, once triggered it did not discern friend or foe, until \$he reset \$erself.
+
+“Just humor me, okay,” Ana put her hand on Mali’s heart area, which actually immediately disarmed the torch, at least bringing Ana in to the safe DMZ around Mali, protected inside of it, as Mali could feel a lump in her throat and tears on standby.
+
+“Are you kidding?” 
+
+Ana shook her head no.
+
+“L*ike* is way to weak a word,” \$er pent up frustration still coming through in the statement, “More than you’d imagine,” Mali smiled a sour smile, the only kind of smile possible over a physiology of anger and sadness. Mali was not sure where this was going.
+
+“So imagine I was inside you, or you were me, and this happened to you. How would you treat yourself in the situation if this that you love in me was you, in you?”
+
+Mali smirked into a little smile. A trick question. But it was working.
+
+“What would you say to yourself then? What would you say to me if someone treated me like that?”
+
+Mali shook \$er head, “That they’re fucking crazy. They’re nothing. No one. Idiots. To go fuck themselves. You’re beautiful. Amazing.”
+
+Ana nodded.
+
+“And no one - I’d let no one like that near you. I would physically defeat them however I could.”
+
+“So then would you let anyone near me? How could you tell?” She had a point. Mali kept most people away. As it was.
+
+“You know all that crap, baby, isn’t real?” Mali knew in her heart that it was true.
+
+“How many of the people who you pushed the angry defense at had no intention of bad toward you? A few assholes in a crowd of a hundred. We’ve passed thousands of people since I’ve been here. This is the first time. But you almost always have your defense up, I see it, do you agree?”
+
+It was still there. After all this. On the apex of the most feminine she had felt and really connecting to her true self, how easily she was distracted and lost from herself.
+
+Heartbreaking.
+
+“How many possibly amazing people do you keep out for every asshole you encounter?”
+
+Anger \> frustration \> futility turning into latent rage, and the resulting body structure. Feelings, thoughts, actions and inactions. Always on the lookout, hyper-aware, checking in on people if they were looking or thinking of her, laughing, saying things. Mali shook $er head, this was $er life as of recent years.
+
+“Honey, can I say something?”
+
+Mali looked back at her with at least a little opening. After all, she was the one she trusted, “okay”, with a pout transforming into a sad almost teary smile.
+
+“Look, this is something that I don’t own, someone told me and maybe it will help you, okay? I don’t want you to think I am presuming.”
+
+“Its okay.”
+
+“Its this: Unless you feel the deepest emotion when things happen - everything stays as it is. Face, he helped you break through deeper to at least see that most of this is a projection, right?”
+
+Mali nodded.
+
+“You brought the projection to task. But you’re still in the same patterns - they just became natural to you long ago,” she paused, “and meanwhile, one aside that you need to know, please believe me, that you are very very beautiful. As you are. You’re not a man in a dress. You’re a mix. But way to the feminine. With your smile and softness, your way, your true way - not this angry defensive way - you’re perfect. And not just to me but so many people in this world because I see it. I see how people respond to you. To us when we’re one.”
+
+“Thanks,” Mali lightened a bit. Though $he still felt tense, knotted up and like crap. Ashamed.
+
+Mali looked around. Still wanted to kill someone. But \$he recognized the truth in Ana’s words. There was a worse feeling now, \$he was only starting to be able to know and label. Not from not what anyone did or said, but from betraying \$erself to them.
+
+*By reacting. By even caring. By even hearing it and making it mean anything. At all.*
+
+“So, like with the guys we just passed, okay?” pausing to make sure Mali was with her and okay, “You feel anger. Frustrated, right?”
+
+“Yeah, like killing someone…”
+
+“So, I would suggest that maybe that is not the deepest feeling. Maybe there is something behind it,” she paused, “Remember, anger and frustration - a lot of it, is just from not being seen and embraced as who you are…”
+
+“But these are only words, for anything to change, you have to do there, to the depth yourself, get it?”
+
+“Yeah, like when I eventually break down and cry when some random thing happens or I see something alive, expressive and happy.”
+
+“Exactly. But thats not the emotion, thats the discharge. In real time, I suspect that maybe you don’t go there much at all. What did you really feel when we walked by that prick garden over there?”, pausing again, “if you really really felt, like as you were when a child? Early early on?”
+
+“Prick garden?” Mali started laughing in earnest.
+
+
+
+
+
+# Going Deep
+
+But Ana just stared back in no-nonsense mode.
+
+“Ok, Give me a second,” Mali closed her eyes, trying to contain \$er laughter. Though laughter was good. Okay, going inside.
+
+*Humiliation. Futlity Powerless*
+
+*Not being able to do anything about these people Nor… no matter how much I do I’m never good enough… A joke.*
+
+*Being made wrong. I’m wrong. They make me feel wrong. About who I am.*
+
+*Who - what - I am is wrong.*
+
+It all built up like a tension, a molten in her core. Like a starting of a bubbling up and then very quickly a pull in the other direction. Like a deadlock but an active one, like half her body was trying to move in one direction and the other in the opposite.
+
+One one side… to be myself… And on the other…
+
+Store up rage as fuel against these assholes. Defend.
+
+Protect myself.
+
+Under it…
+
+*Sadness.*
+
+*Why did they… why does the world… have to be this way? Why don’t people just fucking live and let live?*
+
+*Heartbreaking.*
+
+*There’s something wrong with me and everyone sees it.*
+
+*But I don’t feel it inside.*
+
+*I love who I am, inside.*
+
+*Face is wrong, I don’t hate myself. I love myself!*
+
+*But I can’t be in this fucking world with these people. If I react… I fuck myself…*
+
+*If I dont… I fuck myself, just another way. Both give the world what they want.*
+
+*What they see.*
+
+*A reaction.*
+
+*Or a more masculine woman.*
+
+*Either way… less of who I really am.*
+
+Mali was in hell. This was hell. Maybe she was right, going off the straight and narrow some years ago, well before all this was just something swept under the rug.
+
+*Now my everyday moments depend on my authenticity.*
+
+Mali knew just a bit now over the past few months that being \$erself made things right.
+
+*Usually.*
+
+*At least to myself when I'm alone with myself.*
+
+In her authenticity to date, if \$he was not female, \$he was definitely not a guy. And in this day and age in a face on confrontation \$he could defend herself assertively if needed.
+
+But \$he never had to.
+
+It was like the easier way, the way to damage $er, for the stupid people, as they’d figured it out, was passive.
+
+*Like the Australian asshole.*
+
+And when these idiots wore \$er down, when the rug was pulled from under her, all was lost.
+
+*Then I’m in hell…*
+
+*Wherever I am this happens… I need to get out and soon.*
+
+It was now worse than ever.
+
+*Because now I care.*
+
+*I don’t want to live in the middle as some sort of weird satyr hybrid. That’s not who I am. I wish it was but it’s not.*
+
+*I’ve gone too far. I know to much about who I am.*
+
+*I could go back to being a guy but I’d have zero integrity.*
+
+*And the world would still beat me up for the feminine that comes out through the cracks.*
+
+*It always did.*
+
+*How much more now.*
+
+Coming back to the incident at hand, it wasn’t about so much that $he was truly not okay. What she hated in her was this defensiveness, the posture and way.
+
+\$he hated \$er angry forward neck, tight shoulders, the anxiety to be ready to fight or flea at any moment.
+
+Even though they were just words, as a child, as now.
+
+*That is what is ugly.*
+
+*If I could be a girl… all the better… I’d be fine as a girl. Nothing I’d miss of this life. The more girl the better.*
+
+*Just a normal woman… off the radar. I can go about living my life and doing my best to be happy.*
+
+*Have a partner, a girlfriend. Be together. That's all.*
+
+
+
++++
+
+
+
+The words of that second grade moment on the playground were etched indelibly in \$er memory:
+
+“Hey look at Mark… he runs like a girl!” 
+
+That was it.
+
+Mali went back now. \$he could not remember feeling anything, just the pulling away… Looking away, not letting anyone see any reaction.
+
+*I was petrified. Terrified.*
+
+*Immediate lock down.*
+
+*I was broken. I was wrong. Something was wrong.*
+
+There was not the other polarity. Not the option of getting help, confronting, even fighting.
+
+*Just pure stored rage.*
+
+*“So what if I do asshole? Want to get beat up by a girl???!”*
+
+But no, it was only the pull in. As a child \$he felt no other real options. Everyone was stronger. And everyone was more right than $he was for some unexplained reason. 
+
+*Went on and pretended it didn’t happen. Like it was nothing.*
+
+*Even to myself.*
+
+*Only that I was never the same afterwards. I’d lost something.*
+
+*But I actually only hid her.*
+
+*And I’ve kept fucking losing things to idiots.*
+
+She remembered the kind of sick feeling in \$er stomach that had kind of pervaded on and off in elementary school until at least \$he started being more \$er own person, albeit not in terms of gender.
+
+*Like when I walk down the street now and try not to look or make contact with someone - who could pose such a threat…*
+
+*If they were to see me…*
+
+*I can not show them I hurt.*
+
+*I can not show that they hurt me.*
+
+*That was dangerous.*
+
+*Not a tear from eye or eye contact. They would not see this.*
+
+*If they did, they won. It would be over. And even back then, fuck them.*
+
+*As I child I knew or decided this unconsciously.*
+
+*I’ll fuck myself before I’ll let anyone fucking win this.*
+
+*But can I get between the moment of ridicule, ‘you run like a girl’ and the lockdown like Ana asked?*
+
+*It felt like something was wrong with me. I was wrong.*
+
+*Wrong how I was. How I am. Because they said it.*
+
+*Feeing bad… powerless. Because they said it.*
+
+*I couldn’t make it stop. Being feminine was wrong.*
+
+*A feminine boy… more wrong… They said it.*
+
+*I didn't even know I was that. Up to that moment I was just who I was.*
+
+*Everyone laughed. It must be true. They were all okay. I was not.*
+
+*They all agreed that I was not.*
+
+Sad. Because even then $he knew inside, not that $he had the exact words, that her heart was good. Her intentions good. Her spirit and life were good.
+
+*And then they said it wasn’t.*
+
+What more personal could anything be?
+
+
+
++++
+
+
+
+“What I would suggest is that maybe maybe try and lay flat out to yourself what you’re feeling now when things come up.
+
+Prick gardens or what have you,” Ana smiled, coaxing one back now from Mali.
+
+“So now that you have an idea, does this help?”
+
+“Time will tell,” Mali smiled, “but it seems promising, as promising as Faces lesson.”
+
+“Anger and frustration,” Ana paused thoughtfully, “are blanket emotions. There’s always stuff below them, emotion below the emotion. If you get there, feel them and own them, I bet you’ll feel very different. About everything. Even those men.”
+
+Mali nodded.
+
+“Face wasn’t wrong, only what he meant by hate was really only you turning in on yourself. Anyhow, that is really true hatred, ones own energy, emotion, being turned in on herself. Ah, and this is the Jessi in you. Powerful as long as kept in check and in reality!” Ana smiled.
+
+“Jessi?”
+
+“Yeah… she’s a bit wild herself.” 
+
+“Prick garden?”
+
+“Of course, she came up with that term. When you see her just bring up the topic of West Omaha sport bars…” then Ana intoned clearly from experience “wind ‘er up and watch ‘er go,” laughing.
+
+“Oh, and, so whatever you’re feeling now and in the future, remember who you are. Remember me. Be me if that helps. Never forget it. Through this you’ll find true love for yourself. Also, think of Nong?! — how would she act in this situation?”
+
+And that painted a very colorful picture in Mali’s imagination. Indignant flamboyance, recruiting of others around her. Of course she spoke Thai, to that advantage. But still.
+
+Nong would have been all over that guy. Probably ended up ridiculing him somehow. Caught up with him thorugh the crowd somehow in some fabulous way. Let the Thai’s see if they can mental- erase *that one*.
+
+“So when someone tells you you aren’t female, where do you go?”
+
+“I look at my face. Maybe I look not female. I think maybe they’re right. They go against my own experience of myself.”
+
+“Right. And that’s why you’re thrown around in despair by these idiots.”
+
+It was the same place \$he \$erself had been going ever since childhood, $er beautiful figure in \$er mothers clothes and then catching a glimpse of \$er neck and face, which may as well have been a horses head for all it mattered.
+
+“So that’s not the place to look. Where did you go the other day on the bed when I pinned you down?”
+
+“Deep inside. A surrender, a feeling.” 
+
+“Can you be there now? Feel it now?”
+
+Mali nodded. Of course \$he wanted to avoid it as it required walking through a waterfall of tears and sadness. But $he did.
+
+And it was there. SHE was always there.
+
+\$he could stand straight connected to HER. Straight, open but totally powerful. A way of being \$he’d never known to $erself.
+
+“So Mali, there’s a difference between focusing on the pure you inside, versus being focused on everyone, everything and every inspired doubt around you. Come inside, connect to yourself always… if it helps, connect to me. You’ll become stronger, more resilient and more yourself. Walk through the world now with that connection…”
+
+
+
+
+
+# Loi Krathong
+
+“Mali, it makes sense given the hand you’ve been dealt…”
+
+Ana’s tone was as a teachers - as it had seemed to be more and more over the last few days - but somehow, through credibility and their close-sameness, her words were always easy.
+
+She continued as they made their way through the Monday holiday crowd on the way to the Chao Phraya river. It was very late afternoon and the feeling of impending dusk in the humid, overcast sky coupled with hundreds, maybe thousands of people in the street in relative harmony with them made a feeling of surreality.
+
+Ana took Mali’s hand, “But now that you know… more… accept… it’s only in the presence of others that you’ll really feel alive, and actually truly come into yourself…” she paused, not wanting to bring up the *incidents* again but needing to, “That’s going to be the beauty and grace of your transformation, inside. Is to connect and belong. In spite of prick gardens, farms, or communities!”
+
+Mali started laughing again. The *prick garden* thing really did something for her. 
+
+They continued strolling, between couples, families with children, many carrying what appeared to be wooden dishes filled with flowers and the kind of items of offering seen so often in Thai shrines - small figurines, food and yes, glass bottles of Red Fanta.
+
+“I know that sounds hard, but be open to it, okay?”
+
+Mali nodded. It was something \$he knew… in fact all this gender stuff, without it, would have had to happen sooner. For years $he knew that through life, through isolating \$erself, \$he was shooting \$erself in the foot - socially, romantically and even in business life, finances, everything.
+
+“I never felt okay enough to want to be around people… or to stay around them.”
+
+“I suspect it will be much easier now - well, soon - than you even imagine.”
+
+“Kor tot na ka!”, a resonant female voice sounded as the woman stumbled slightly with the dish she was carrying and shoved into Ana. After her initial reaction she recognized the foreigner and changed to English, “I'm sorry! Too many people. You alright?” in fluent but accented English.
+
+Ana shrugged like it was nothing and smiled, and then Mali, noticing the whole thing, locked eye’s on the woman next to this poised… oh fuck… woman… wait. \$er mind all of the sudden scrambled.
+
+Cat.
+
+And the woman who brushed with Ana, no other than the tall women $he and Ana had… uh… ogled in the park!
+
+Both Mali and Cat’s jaws were dropped, following Ana’s which had already hit the position after recognizing the woman she’d collided with. They were all in shock, and particularly Mali nor Cat knew for sure how to deal with this… strange… unlikely… coincidence. In a city of millions. And how things had been left. Of all things Thai, saving face and allowing others to do the same was of paramount cultural importance.
+
+So Mali smiled. The hurt of not so long ago had been greatly diminished by \$er interaction with K, The Face and more than anything by Ana’s presence in \$er life. Which \$he only now recognized.
+
+“Mali!” Cat, regaining her composure was the first to speak, standing up straight.
+
+Regardless of what Mali ever had in \$er mind - and frankly \$he had no idea what that was as $he barely had processed their last conversation - $he was one to begin open slate and be happy at seeing her, “Out of how many people in this city?”
+
+Cat shook her head in disbelief. All four had stopped, Cat and Mali by being stunned and Ana and Koona in bewilderment, not understanding for the most part what was going on.
+
+Cat, finally reaching to grasp Koona’s arm spoke carefully, as if not sure, “Mali… this is Koona. You know, I told you, my best…,” her usually confident words trailed as she turned her head as her and Koona’s eyes met.
+
+As if that last conversation had been something spoken in passing instead of that which had tattooed Mali’s heart. \$he nodded. More than *best friend* from what \$he had understood.
+
+Mali’s voice stumbled, “Oh,” as Ana nudged \$er and responded with a nod, “This is Ana.”
+
+“Ana?” Cat questioned.
+
+Ana nodded with an innocent smile, disarming everyone, “I’m visiting, from Omaha!” she said proudly with her head straight and tall, with her trademark single angular nod, after which Mali unconsciously did one of her own.
+
+Cat tilted her head, “Omaha Steaks, right?” smiling at Ana with her own trademark eye squint.
+
+“Wow, I’m impressed! Have you been?” Ana was excited.
+
+Cat shook her head, “no, but they get imported here! Kind of a big deal.”
+
+Koona nudged at Cat to give her their bowl to hold. Which caught both Mali and Ana’s eyes. Cat seeing the question spoke, “We came to put our float in the water,” again turning with another shared tender gaze with Koona.
+
+Mali could see they were totally into each other. In an instant tears reached \$er eyes, remembering what Cat had said… that if it weren’t for \$er, she might never have woken to her love for Koona. It felt good to know this. And it felt even better because Ana was there and just reached for \$er hand, gently massaging it in her own. And even more as \$he noticed that both Cat and Koona noticed this detail as well.
+
+*I guess this is how good it feels to ‘save face’.*
+
+Thailand had it afforded it for \$erself too in this moment.
+
+Cat said something to Koona in Thai, they both raised their eyebrows, smiled and nodded.
+
+Koona spoke, “You enjoy Loi Krathong before?”
+
+Mali shook \$er head, “but we came to see it!”
+
+“You don't have a krathong?!” Koona looked disturbed and sad, almost angry. She looked around.
+
+“Krathong?”
+
+“Boat. This,” Cat motioned to their dish.
+
+“No, we didn’t really know… we saw them selling but…” the fact was \$he was too engrossed in Ana’s company to really consider it yet.
+
+Koona smiled, “have to have boat, to float,” she motioned for the word, “in the *nam*, the water… good luck,”. It wasn’t really a question. More of a command.
+
+At that moment everything crystalized. Ana who had been Mali’s leader despite only being in Thailand for a week, all of the sudden was \$er more quiet and playful companion. And Cat with her poise and dominion of English would have also been a candidate. But at this moment there was no question who the alpha of this group was. It was just a feeling.
+
+As if realizing what was going on, Koona smiled that enigmatic Thai smile that had about fifty things encoded in it. Next to the nuances of the Thai repertoire of smiles, American’s single smile seemed like simply a puppy dog’s.
+
+Cat spoke, “we’d love for you to join us - really,” she raised her eyebrows looking at Mali and \$he felt Cat’s earnestness, “we can find a good krathong for you…,” softening it with, “if you’d like… and we brought some wine and snacks… we were going to sit on the edge, and be a little rebellious… will you come with us?”
+
+Mali looked at Ana, both simultaneously nodding.
+
+“Yeah, it sounds great and you can tell us and show how to do this floating krathong thing right!” Ana was beaming. Mali stopped wondered if she was feeling what \$he was and if she liked it. Regardless there was inevitably going to be a conversation later when they were back alone, already so many levels of meaning stacked in this chance encounter.
+
+“Come on then,” Cat gestured, as both couples hand in hand made their way in search of a krattong for Ana and Mali.
+
+Ana and Mali trailed the two, and in a safe moment they looked at each other with raised eyebrows. Almost inaudibly and simultaneously mouthing “fuck… Fuck?! fuck!”, Mali leaning in whispered “and on so many fucking levels,” and the two burst into laughter.
+
+Once they regained composure, Mali voiced to the other couple “You two look amazing together.” In part out of trying to allay the feeling of the whole now creepy ogling and conversation which they had participated in over Koona. But too, \$he meant every word.
+
+Ana looked at Mali dubiously when the other couple had turned back around.
+
+“I mean it Ana, jesus…” Mali whispered, adding, “and *we* will talk about this later,” emulating Ana’s own seductive register and nudging her playfully. Ana simply answered in her angular head nod, smiling but completely avoiding looking at Mali, fixing her smile, clearly holding herself in check.
+
+Mali and Ana noticed Cat and Koona switched to Thai and seemed to be having a lively conversation of which they understood nothing.
+
+“Seem so nice,” Koona smiled.
+
+Cat nodded, “Yeah. Well, I know Mali. And Ana… it’s weird, they seem like two of a kind.”
+
+“I know. It’s like they’re two sides of the same person… I mean, I would say like brother and sister… but it’s not that…” her eyes defocused trying to find meaning.
+
+And then Koona continued, “Fuck Cat. I see what you saw in Mali… totally a girl by the way,” Koona winked quickly, “she just needs some surgery and hormones… and I’m pretty sure she’s always going to be in to girls,” she nodded and smiled.
+
+“Really? How do you know?”
+
+“I’ve me functional gaydar,” Koona snorted, laughing. “And Ana?” Cat smiled teasingly?
+
+“Fuck.” Was all Koona could say, shaking her head. Cat arched her eyebrows.
+
+“Yeah,” Koona nodded as Cat squeezed hard Koona’s hand, aggressively.
+
+Cat eyed her suspiciously, “you… better be careful girl,” breaking a smile.
+
+
+
++++
+
+
+
+Having found Ana and Mali a krathong, the couples found space and settled on the stone wall at the edge of the river in a slightly less occupied area, which itself was a stroke of extreme luck given the crowds and the occasion. Mali once again noted how being in the presence of this natural… and not to mention, beautiful alpha felt so amazing. So natural. A feeling of safety, like \$he could let go even more, that nothing harmful could reach \$er with Koona around, just by merit of being part of her group.
+
+“People - kon Thai, older, parent generation - say Loy Krathong is please water goddess, get money, good fortune. For me…” Koona eyed Cat, “it's about love. Wanting love,” she paused reflecting, “for it to be forever. We float our boat now…”
+
+The sun had long set and what was darkening blue sky was now pretty much black, as black as the Bangkok night sky can be withall the city lights. From either side of the river there had also started a massive and continual stream of lighted lanterns into the sky. The river shore was packed with people, and hundreds of little candle-lighted krathongs floated at various distances from the shore. Even with the crowd, a sense of beauty and peace pervaded the evening, beyond the usual rather chillness of Thai people out in the evening.
+
+Koona and Cat launched theirs first, standing there, watching to assure it floated and remained lit, until it could not be distinguished from the mass of other krathong’s it joined. They stood afterwords looking into each other’s eyes. Which aside from holding hands was about the most intimate thing couples in the Thai culture could acceptably do in public.
+
+Koona took Cat’s hand and turned to Mali, “your turn,” as the couple both smiled a little mischievously.
+
+Having lit the little candle and put some money, a piece of fruit and some tamarind candy in the little krathong, Koona instructed the couple, “Now, you both hold it and put it in the water together,” nodding.
+
+Mali and Ana squatted down to release the float, gently putting it into the water and giving it, together a little push, as it too began to make its way.
+
+As they stood, Ana took Mali’s arms in hers, as Cat spoke, “They say that when a couple sets afloat a krathong together… will never part,” as she squeezed Koona’s hand softly, “even if there may be challenges and mountains between them at times… but they’re to be together, always,” she turned smiling and taking Koona’s other hand and pulling her to her.
+
+Then the two began speaking in Thai.
+
+Koona stood across from Cat with her hands in her own, “Cat, will you be my girlfriend?” It was weird, although Cat had as much as said yes, she was still just as anxious and afraid, “I mean, we talked… if it doesn’t feel too soon for you… I know… I’ve been waiting forever for this and I can’t believe it but I know this is new for you and…”
+
+Cat ended Koona’s run-on ramble leaning in and with her own lips with a gentle but firm kiss. As they broke, Cat spoke in a low husky tone, almost a whisper, just for Koona’s ears. With anyone else, she’d feel a twinge of insecurity but their relationship over the years, and now turning to mutual love left no doubt, “Koona, I’ve too been waiting for this as long as… maybe even longer… than you. I just needed some help, thanks to you, and to Mali,” as she winked over at the other couple, “I’ll be honored to be your girlfriend. Beyond words. And so happy.”
+
+“So cute, so romantic” Mali and Ana chimed almost spontaneously.
+
+Slightly annoyed at the disruption with her girl, Koona quipped, firing back, “Mali, you and Ana, what about you?”
+
+Ana winked at Mali, “I think… I’ll be hanging around… so to speak.”
+
+Another Ana WTF koan given it had become known to Mali that her return flight was tomorrow.
+
+
+
+
+
+# Separafusion
+
+*The words have changed… nothing… it seems.*
+
+Mali needed no koan to question her sanity today.
+
+The morning had come. At the Bangkok airport all four arrived well in time of the flight for Ana, Jessi and Natalia. Jessi and Natalia had almost magically appeared the night before at the hotel from their return from Phuket and had now gone off under the pretense to browse the myriad of shops, knowing well that whatever time they could give their friend with Mali was the best gift. For Mali a chance to sit with Anastasia was well worth the cost of the more expensive ticket back to Chiang Rai and well worth sitting in the airport for several hours after their departure waiting for it.
+
+“I hardly got to know Jessi and Natalia…” Mali commented, “I feel kind of bad we blew off going down to Patong.”
+
+Ana nodded, “But you know… uh…” This would be more complicated to explain than she could at the moment. So she took another tack.
+
+“So…” Ana looked brilliantly at Mali, blue eyes sparkling, her hair pulled back. She looked like some sort of super-model, thought Mali.
+
+Mali just looked back with tears starting. Again.
+
+*This is insane. How can you possibly be getting on a plane now?*
+
+\$he just couldn’t get those words of Cat’s out of \$er head, and remembering how powerful the moments at Loi Krathong felt in $er the night before. It was all surreal. There with Ana, it felt like the were never going to separate. Floating the Krathong with her. Knowing and feeling in $er heart that Ana — \$he’d never separate from, even though $he knew full well what would happen ‘tomorrow’. Also the incredible reconciliation with Cat and getting to know Koona. The feeling there was with these… \$he hoped would be long time friends. They were all in ways a single thing.
+
+The sense of well-being yesterday, it was what she’d been after forever in her dreams. Feeling that way, with ‘the one’ and surrounded by friends. Of what \$he was missing in life, what more was there anything else?
+
+*Oh… I guess dealing with somehow accepting myself.*
+
+But the feeling was not a foreign feeling to Mali because \$he’d so often dream’t of it… but in reality, never like this.
+
+The ripping of her heart. This time was so different. They held, they loved, they kissed. There had been nothing sexual, beyond Ana’s ‘experiments’ and teaching moments. They were like kindred souls or maybe even angels. It had not been a consideration. Or a drive. It was eerily like the love Mali had always imagined - the one so deep there was no need beyond the love itself, the connection.
+
+The togetherness itself was as compelling as any orgasm, and it was ongoing. Like an ongoing thing that created its own energy and such pleasure.
+
+“Look, there is something I haven’t told you, Mali,” Ana was looking down at her hands, “not because its anything bad but just because, I guess it was not time. Its time now,” she paused considering, “can we walk?”
+
+The two took hands and strolled down the corridor of the gates.
+
+Being early morning Tuesday, it was a relatively quiet time at the airport.
+
+Mali was anxious to know what Ana had to say. But there was something first… maybe it was… related.
+
+“What is it?” asked Ana.
+
+“Its weird, I was just wondering what it could be you need to tell me. And then all of the sudden I am asking myself what’s going on with my left side. Its always been weaker. I mean, I am left handed, right. But, my standing isn’t as stable on that side. And look at my body - the tattoo, the right has all the piercings - three vs one on the left. Bracelets and rings always go on my right side. I didn’t - don’t - do any of this consciously. I dunno. Its weird. But anyway, I guess its not here nor there. Just strange I thought of it.”
+
+“Actually it's not. Do you feel complete, Mali?” Ana paused, waiting, choosing words, deciding to state the obvious, “We’ve spent ten days together.”
+
+“I would if my left side felt more happy!” Mali joked back, not knowing what she was saying.
+
+“Well, why don’t you ask it what’s missing?” Ana voiced in a sassy tone as if she was upset at Mali’s levity.
+
+Mali slowed the pace of her walking as Ana followed, but not to a stop. Meditatively.
+
+“What’s missing?” Mali looked deeply into Ana’s eyes but now only saw \$er own. \$he felt alone all of the sudden. But \$he brought \$erself back. \$he felt into \$er left side.
+
+Finally speaking, Mali answered, “Its weird, but she’s a girl. Female. The pushed under. The avoided. Who I ran ever where I could to get rid of or at least hide from when not convenient or acceptable. Who I went to every therapist and healer trying to escape from . But she’s also all the good in me. Without her I don’t have a chance in life.”
+
+“Uhhuh?” Anastasia now encouraged in her nurturing sweet but knowing way, like iron covered with the softest of pillows.
+
+The words came to Mali but she didn’t say it because, because it was weird.
+
+*Especially if she doesn’t feel this too. Probably shouldn’t be mentioned.*
+
+But there was nothing left.
+
+“Ana,” Mali stopped and turned to her so they were now facing, “I don’t even want to say this because maybe it sounds weird or creepy, but this is what I heard and there’s nothing else: Its you. My left side, my disowned love, my child, all my joy, all the goodness I have and frankly my only chance not only for happiness but being able to actually do anything in this world - its you.”
+
+*There. The truth.*
+
+Anastasia looked directly back at Mali. Knowing that what she had to say Mali had completed, taken its own route through a being as connected, as it would have happened if she were on the flip-side.
+
+“Am I real then?” asked Anastasia, too seriously to be taken as a joke.
+
+“If you’re not then nor is anything I’ve ever held in my heart. Nor anything I have fought for, striven for.”
+
+“Do you accept me?”
+
+“Of course!” smiled Mali, “you’re the… the most amazing.”
+
+“Do you accept that I am who you really are if you’d just let me be?”
+
+“I would love nothing more. I mean. We’ve spent all our time together. There’s been no time to step back. But I know that if, when I have to, my hearts adopted you. Inseparable. Never to part.”
+
+“Good.”
+
+“Why?”
+
+“Because I’m sick of Omaha!” she smiled widely, raising her eyebrows, as if it was an obvious thing.
+
+“But you’re going back?” Mali all of the sudden felt hopeful.
+
+“Tell you what, just see us off, okay? See the plane leave. You have the best of hearts. I should know. You’ll know. It will all make sense. You - your life - our life - all of our lives, will come together. Okay?”
+
+It was like she was talking in code but it was intelligible deep inside if not processed.
+
+“Just trust me now, okay? Trust me, trust me until tomorrow, will you?”
+
+*WTF.* But Mali nodded.
+
+“The next half a year - its going to be great for you!” 
+
+“And you?”
+
+“Just like I said, of course.” “But…”
+
+“No, theres no need. Lets treasure our magic where it is in the moment, shall we?”
+
+Mali felt reluctant. \$he felt the jeopardy as if \$he was letting Ana get away physically without a fight.
+
+*I know what she said but… I can still…*
+
+Mali reached out and touched the arm of the very physical woman in front of \$er. Who would stay that way if $he could just make her stay.
+
+“You still hesitate Mali, are you ashamed of me?”
+
+*Where did that come from?*
+
+“Come on Mali… would you be embarrassed if you were exactly like me? In every way?”
+
+Mali paused.
+
+“Not if I looked like you… Jesus!!!”
+
+Ana stepped closer to Mali putting her hands on \$er shoulders. They were basically the same height. Ana went for Mali’s hands and placed them on her waist.
+
+“I think our bodies are close to the same, don’t you?” she smiled seductively.
+
+It was true from the neck down basically. Down to the basically flat chest on both of them. A feature of Ana not lost on Mali as $he’d always found flat-chested athletic women the most attractive.
+
+*The picture. Those abs. Who I long to be…*
+
+*Ana is who is in that picture back in Chaing Rai. For me. I’d choose her in a second if I could…*
+
+Mali’s own insecurity coupled with the almost all-knowing Ana in front of \$er, \$he already knew but wanted to hear from her.
+
+“My face…” Mali paused looking down, ashamed-like, realizing how much self-hatred this statement seemed to hold in it but it was true, “I can’t be you with this face. And my neck, my posture still needs work. I’d do anything to be you but how can I this way? What do you think?”
+
+“I think you already have the answer. You already know your surgeon. You even know the price. You know you want it… I think you even know better than me perhaps how to open your neck…” Ana grew serious and spoke with the poise and power of a Marine, “Mali, is it not yet time to get off this god-damned fence?”
+
+It was the first time Mali saw the frustration, even rage Ana held inside. \$he knew exactly that feeling first-hand. The same feeling that held \$er body in tension and defensiveness.
+
+
+
++++
+
+
+
+“Lets go over there,” Ana pointed to a rather empty gate with some big open space, all white with nice light coming from the sun reflection through the windows off the reflective marble of the exterior.
+
+“Okay. Then?” as they approached.
+
+Ana pulled at Mali’s hoop she was still carrying strapped like a bow and arrow to her back.
+
+“Oh no! Not in the airport. We’ll get in trouble!”
+
+“Yes. You, just you, dance with the power of your left side okay? I promise, I’ll protect you. It will be positive.”
+
+“I’ve always wondered what would happen at an airport,” Mali smiled knowing \$he had no choice now, looking down at the floor for a second before looking back up at \$er beloved, “but okay.”
+
+“But no blindfold, okay?” 
+
+“Why?”
+
+“That… I think... has a little too much terrorist sprinkled in it, don’t you think?”
+
+Ana smiled at the hardly funny joke. 
+
+*Okay. Hoop together, a headband, the iPod. No blindfold. Check.*
+
+Ready, Mali switched the pod on. \$he tended to trust the randomness algorithm in it. Randomness algorithms in general - as they weren’t truly random. Which tended to be revealed that more often than not the songs that came up were just the right ones for the moment.
+
+And of course… perfect…
+
+Once again, [The Way Back into Love](https://www.youtube.com/watch?v=Czv03J32ho4). Even the algorithm knew.
+
+It was not words. Not music. It was everything. \$er, Anastasia. All feeling, everything she felt connected to became heightened.
+
+It was slow movement, only that which came from the depth of \$er core. To stay true. To everything.
+
+All the holding that was left, including \$er left side released,
+
+\$her chest and neck opened and tears streamed silently like unimpeded rivers as the minute flexors and extensors and all the other muscles came into a harmony SHE'd never known.
+
+SHE felt a strange sensation of the power now to choose that forbidden thing she’d always wanted, always had longed for someone to tell HER and to agree this was okay.
+
+
+
+
++++
+
+
+
+A tension, conflict was building in Mali. This one could not go. She would not let it. It was not right. Her heart had taken enough loss, albeit so many of them caused by her. Well a misguided ‘him’ who did not know up from down. But now, she knew who she was. Even though she knew the rest of life would always be a continual discovery.
+
+She looked at Ana who was sitting with her legging-clad legs and bare feet on the airport seat, knees in front of her face.
+
+Staring at the planes and the movement. As if hypnotized. “Ana,” she said turning from her next seat over and grabbing at Ana’s bent and crossed arms sandwiched between her belly and legs, “You can’t go. My heart’s breaking,” the tears beginning and with no plan to hold them back, there was nothing to hold them back for, “I can’t live without you. Really. I am going to go crazy if I walk out of here alone today. I can touch you, feel you,” \$he grabbed Ana’s arm again and squeezed, pulling her toward \$er, “There’s *no one* like you and I know who I want. Forever. More than this life.”
+
+“I know who I am now. I know I must choose to be different. I get it. But you’re here. I can touch you. But I still… I still like… love… having you here, in front of me, in my presence. It's possible for you to stay. Why can’t…”
+
+Ana turned quietly and a little sadly, and smiled a little,
+
+“What you’re feeling right now is how someone not so long from now is going to feel in your own presence at any prospect of losing you. Trust me.”
+
+
+
+
++++
+
+
+
+Mali sat staring at the huge 787 preparing for departure. They had just closed the door, \$he could see the definitive closure even through the skyway.
+
+No matter what \$he said, nothing shook Ana’s stoic confidence or changed her mind. Which was only contagious because \$he felt totally different with Ana than other women. Ana cared and truly knew the best for Mali. She was not going to hurt \$er. Such at least quelled Mali’s crescendo of sadness to a manageable level, even now.
+
+She tried not to breathe too much because it would just be endless tears. One more getting away from her. What the hell was wrong with her? Shouldn’t she have tried harder to get Ana to stay? Made her stay?
+
+*I mean, this is reality, right?*
+
+On a worldly level none of this made sense - everything they did and didn’t do. Not in this world. It made no sense. Not by those rules.
+
+*“But sweetheart, it’s not of this world.”* The words spoken inside \$er head but as if \$er beloved was right here, not behind one of those little plane windows.
+
+That did it, breath or no breath, the tears, even behind all the tension that had once again built in her body since her hooping catharsis, simply streamed out her eyes and down cheeks, like an orange put in an all around vice parting with its juice.
+
+She looked up, the plane had pulled back from the gate and was turning out. Oh and too widely! It was going to back into the plane next door! What the hell?! She jumped up. The gate was deserted. Not even crew. Desperately looking around Mali saw *no* *one*.
+
+Eyes back on the plane, the first shocking thing was that the 787 did not collide with the other plane. It just went through it. Yes, it did that. Literally. Like mist through a screen.
+
+Biting \$er lip Mali checked again. And true as the plane changed direction to pull forward the solidity of it lurched as a mist that swirled a little before solidifying like a spirit catching up to its physical form. And as it pulled away it became slightly, then the more translucent.
+
+Mali, forgetting \$er things, ran to the next gate to see. And it was already too late. There was already nothing. No moving plane around anywhere. Not *that* plane. Totally gone. Vanished. Just a little remnant that looked like a little light fog and the design of the Singapore Airlines logo on the tail, the only thing that made it known to not have been completely imagined.
+
+So like the last ray of evening sun we hold on to and sit there trying to decide when its really gone, or is it still here, she held onto that little thread as if her own life depended on it. It could not go. Ana was real.
+
+Ana’s last words before turning and boarding the plane haunted Mali, “and once you find home in *here,*” as Ana patted \$er heart, “you’ll need to find your home out there.”
+
+
+
+
+
+# ~ REVELATION ~
+
+
+
+# Codigo Rojo
+
+> Hospital Moderna, Montevideo, Uruguay
+>
+> March 16, 2015 3:33pm
+
+
+
+The tone every surgeon dreads hit the monitor.
+
+The flatline, absence of heart activity of the patient.
+
+In the moment the stimulus registered, DMD overheard Dr. Guzman on the phone, having almost pre-reacted to the incident.
+
+“Codigo rojo quirofano 3” he stated with authority and professional urgency.
+
+DMD rushed over to him, placing his hand on Guzman’s back and spoke softly as soon as he replaced the receiver.
+
+“Que paso?”
+
+“I am not sure. Everything - all vital signs were fine - and then… just dropped off,” he stared intently at DMD as they both also turned to the operating table. All but the code team who would perform defibrillation backed away from the table.
+
+“No arrhythmia, the heartbeat was steady, right?”
+
+“Yes, I know, we know she had an arrhythmia in the past but no sign of it. She was just peaceful the whole time, up to now - well, you were here.”
+
+Although completely conscious and in control of the state of the room, including Ana’s state which was at the point of having completed the most complex part of the surgery, with little to no bleeding, another part of his mind scanned his past experience. It could have just been anti-chance that he had never ever had such a situation with a patient. But it just didn’t sit right. Everything he knew medically - there were almost always signs - especially when connected up to this state of the art equipment.
+
+This wasn’t just someone having a heart attack at home and mistaking it as indigestion.
+
+This was real.
+
+His felt his chest compress in anxiousness as the team worked quickly.
+
+Not having anything else he could physically do, he spoke to Ana,
+
+*You’ve come too far, you chose this, you know who you are. If only for us here, come back and be this person you’ve fought so hard for.*
+
+
+
+
+
+# Intertwined
+
+> *No one saves us but ourselves. No one can and no one may. We ourselves must walk the path.*
+> — Buddah
+
+
+
+Koona came closer, “is this okay?” as she reached up to place her hands just above Cat’s elbows.
+
+The klong murmured in the background through the open window as the water sparkled echoing light reflections into the twilight subdued flat through the mostly folded shutters.
+
+Backed against the counter in the relative darkness of the kitchen area Cat smiled as a warm fuzzy feeling of comfort and warmth came and overwhelmed her. A comfort she had never felt probably since being cared for her parents as a child. The same she glimpsed that night with Mali, which started to make everything in her more okay. Her head angled down slowly raised as it nodded and her eyes rose to meet her friends.
+
+Koona came in, sliding her hands up to Cats shoulders an placed her lower arms against Cat’s upper arms, coming closer, eyes shooting and flickering around like a continual dance, with the water reflections cast around the kitchen, a symphony of stars. Cat swore even in the pitch dark Koona’s eyes probably carried some sort of illumination that was inextinguishable.
+
+Cat reached around Koona’s lower back with her arms and pulled her in, “I could stay like this forever… In fact, I’d really like to,” her smile radiated.
+
+“Right?” Koona hummed. She shook her head as she looked down, by reflex escaping the tears but then looking back up to meet Cat again. She shook her head again and an involuntary deep breath overcame her.
+
+So complete. Like everything her and Cat’s friendship had been, now with the completion, the closest possibly intimacy available to a human being here and in sight. She hoped with all her heart they could find together this path, of deepening forever together. She knew enough to let this night both mean everything and nothing as it at very best was still only the beginning she had been longing for forever.
+
+“You know, I love seeing you as you really are,” Cat whispered.
+
+Koona smiled and raised her eyebrows, “and how is that?” 
+
+“That day we met at roofbar, the first moment I saw you again,” she shook her head, “fuck if I didn’t admit it even to myself,” she laughed, “my jaw was on the floor - come on, you saw it?! - sweetheart I ate my heart out. I felt it then. And now. I feel safe, cared for AND with you… I love seeing you so radiant, you stand up so straight and confident, you’re so beautiful and strong…” she paused, “I love that combination, in a girl, you know?!”
+
+Cat punctuated the speech bringing her hand up to push Koona’s hair behind her ear, raising her lips to nibble softly on Koona’s ear.
+
+“Mmmmmm” Koona hummed, bringing her arms around and hugging Cat tightly to her as her neck released and body simultaneously melted. As Cat’s mouth caress ended Koona half snorted, “I’m so glad I’m not a Tom… this is far too good!”
+
+Koona let go and looked at Cat in front of her, “Actually I love… how close we are, have always been. I trust you. I know you so well on so many levels… and here we are going onto a new one,” she paused, “do you feel that too?”
+
+Cat nodded. And again. As seconds passed, “Yeah, but it’s almost like there is so much, how can we make this right in just one night?”
+
+Koona smiled and shook her head as it was again as if Cat had read her mind, “Whatever tonight is is a beginning. Who knows, you may think if you discover I’m an awful lover. You know… shit like that happens you know…”
+
+“If you are, I promise I’ll be patient and teach you to be better.”
+
+Koona winked. If there was one thing she knew about herself this year, the lover part was highly unlikely to be a problem.
+
+*That confidence. There’s no way Koona could possibly disappoint me as a lover… what she’s already done to me… beyond*
+
+*anything I’ve ever felt…*
+
+Koona took Cat’s hand, “Come here, I want to show you something!” as she led Cat behind the tall screen which separated the bedroom from the rest of the open studio.
+
+
+
+
++++
+
+
+
+All of the sudden Cat found herself encompassed in Koona’s arms.
+
+And she knew in that moment without a shadow of a doubt if there had ever been one, this is what she’d always wanted. This wasn’t normal, not what she had been used to in her sporadic and checkered relationships with men, nothing close to this feeling of completeness.
+
+She realized much of this was in thanks to Mali, letting this acceptance enter her while her guard was down, bypassing her defenses, with her own projection of masculinity on to Mali…
+
+*To get here…*
+
+*But this is Koona…*
+
+*I’ve known forever… everything about…*
+
+It too was unbelievable, how it was that she was being embraced, by whom she already loved as a friend, a sister, cared for at times as a mother…
+
+In this moment Koona was everything and that was exactly it, embracing feminine, deep confidant, companion and playmate… confident, strong with piercing eyes.
+
+*Not to mention…*
+
+*That she feels all this back for me. This woman wants me.*
+
+Koona’s embrace said everything.
+
+*I can’t believe it almost…*
+
+That was the most erotic part - feeling on the same page, reciprocated. Was there anything more exciting than knowing even your most raw desire to be reciprocated? Add to that the sweet life affirming quality of the forbidden but what she knew now as totally natural.
+
+There was nothing more pleasurable than feeling Koona’s desire.
+
+*Knowing that she’s turned on and so am I. And we’re together.*
+
+Cat was used to there being no absence of attraction and desire on the part of others towards her. But this was different.
+
+A pang of jeopardy hit. How was it that Koona wanted her too? So much? This alpha beauty she had fallen in love with wanted her too?
+
+*This time… I actually care about the outcome… as if it’s the only thing I’ve ever wanted…*
+
+Koona embraced tighter snuggling her head against Cats, Cat in turn pulling her friend tighter in and circling her neck to massage Koona’s snuggle.
+
+Fueled by the deepest longing each of them knew. The human desire to connect and find their way beyond this life, bypassing death, to that connection in the innate quest to resolve the problem of a seemingly temporary existence.
+
+*I feel it. Tonight we dive in…*
+
+
+
++++
+
+
+
+Koona had turned her head and was kissing her softly on the neck as light moans escaped Cat who was little by little losing her grip on anything but this moment…
+
+Clothes had easily slipped off gently with light finger movements and tugs on the part of each. Everything was like silk, warmth, breath and each others aroma which they already knew.
+
+*Just never this close.*
+
+They were now both naked, in the half-light of the high window behind the bed through which the moon cast rays, the always present warmth and humidity of Bangkok lingering in the late night air.
+
+Koona looked across to Cat arms length away from her, “I really want you Cat. Any way, any how.” A tear fell from her eye and she looked away shyly, uncharacteristic of her of late. She longed like nothing else she’d ever known, to the point it hurt. A longing that scared her. As it wasn’t the longing that could be satisfied with just one night. But with a dynamic togetherness over… hopefully forever. At least until it didn’t matter anymore.
+
+Cat approached, “Yeah?” she smiled raising her eyebrows and lifting a hand to caress away the tear running down Koona’s cheek, the tenderness only which broke Koona down even more.
+
+“Yeah,” she sobbed, paused and continued, shaking her head, “I swear… I’ve wanted you for so long, I can hardly…” The tears started flooding freely down her cheeks.
+
+Cat came closer and embraced Koona softly but completely, molding herself to the woman’s form. The connection and warmth of Koona's body was filling up the latent cold frost and aloneness in her heart.
+
+It was actually a mystery to Cat how until in this moment she didn’t realize the depth in herself. How all this longing and solitude, as a woman, can be seemingly invisible, even desire, until the woman you've fallen for gets close enough and penetrates you and everything that has always been latent comes alive and you realize how deeply you’ve longed for her, to bond and connect, to tears. And that there is nothing in this world more important than being with her.
+
+Koona’s eyes sparkled like gems as she recovered and held Cat in front of her at the elbows. She arched her brows and lopsided smiled, the tears still on her cheeks…
+
+“Jesus, this must be a *real* turn on…” Koona chastised herself, wiping her tears. Her energy shifted as she forcefully exhaled through her nose, shaking her head.
+
+“Hey…” Cat softly reached and stroked Koona’s jaw to bring her back, and then just smiled looking into the other woman’s eyes, held in lock. In a moment Cat felt the shift as Koona’s life-force intensity seemed to take back over, “I love seeing you as you are…”
+
+Koona moved forward pushing Cat backwards toward the support pillar in front of the screen dividing them from the living room. Pinning Cat against it, she locked her arms around Cat and the pillar, squeezing with velvet hardness as her leg went between Cats thighs, deliberately making sure her own thigh and hip joined right against Cats center, almost lifting her up.
+
+At the moment which all holding in Cat surrendered, with an exhale, feeling like a flower that had just opened, to the striking lady her heart longed for, she embraced back and fell at the same time full weight against the pillar.
+
+The slightly taller woman pressed her lips this time hard against Cat, reaching to hold her face in her hands, pulling Cat even more tightly to her.
+
+Cat lost whatever remained of her restraint thrusting her hips to get ever more closer to her girl. Losing control, she breathed into Koona’s ear, “make me yours,” then gripping her even closer in a husky breath, “please!”
+
+There was no way she could ever get enough of this woman. She wanted Koona to feel totally in her freedom and power.
+
+It was that piece that had hit her so hard that night they reunited, the change in Koona. It was as if that was the piece that flipped the switch in herself and made any option not to feel no longer worthwhile regardless of her fear or pain inside. Because this powerful woman, her best friend of ever, brought such a confidence and safety. Truly, Cat had never felt so confident and strong, not to mention happy than in the last few weeks. It’s like she was simply stronger in Koonas presence than she was ever alone, in that forbidden and tantalizing possibility of their joining in more than just friendship.
+
+Coupled with the TomDee conversation and knowing how deeply Koona felt about who she was, and see her true vulnerability under her alpha and strength made things perfect.
+
+“Please, Koona, take me? I just want to feel… to feel… make me feel your strength,” she hoped she had not mis-spoken. The Tom thing still was this stupid cultural remnant that she hoped not to stumble over.
+
+“I want the woman I’ve dreamt of ever since I saw you again…”
+
+As if to answer Cat’s concern, Koona in a moment smiled mischievously and let her hand up to stroke with the back of her hand starting at Cats clavicle, slowly over and down her breast, over what was already a hard and hardening nipple, over soft lower ribs, trim belly, down to her upper leg and then inner thigh, 
+
+“Ah… so you didn’t want me before… like when we were at the pool?,” she breathed, it was a chide but delivered so sincerely Cat couldn’t help but feel the blow. It saddened her she had been so.
+
+With that fuel Cat broke Koona’s grip on her against the poll and with velocity pushed her backwards as she herself moved forward, until Koona had fallen backwards, Cat on top and had her pinned against the bed.
+
+The change in dynamic was powerful.
+
+Koona was enjoying a side of her friend she hadn’t seen to date. 
+
+“You know we could just as well have a cage fight,” she blurted out laughing.
+
+Cat got serious, holding her friends arms are on the bed… eyes on fire.
+
+“I wanted you to kiss me. I wanted you to have stayed. When I was under the water I just wanted… needed to come up and have you take me and make everything right and easy. I needed you to lead me. It broke my heart…” Cat gasped.
+
+Cat’s pin loosened and Koona took the opportunity to push her onto her side, then pulling her close.
+
+Gazing into Cats coffee eyes she whispered, “I’m a little different now…”
+
+Cat nodded.
+
+“You have no idea how terrified I was to even have come that close then. I couldn’t handle it anymore if you didn’t… didn’t want me. I had no confidence left. Didn’t know who I was deep inside… the extent of it.”
+
+“But do you know now?” Cat chided back but again delivered seriously.
+
+The answer was not going to be with words.
+
+Pushing Cat’s arms up, intertwining with her fingers, Koona arched her back and kissed Cat’s breastbone as Cat left the realm of time and space. It was like every tension that had been holding back in her being came to awareness and automatically released upon its announcement. Every place she’d braced against… *this.* Every muscle in her abdomen and pelvis went slack and let go as she flowed in the moment to open as a flower, *this*.
+
+Koona moved her lips up, around and down her right breast, coming the the left and doing the same as if tracing an infinity sideways ‘8’.
+
+And then Cat came down off the cloud with what felt like ravenous desire, a stark contrast yet seemingly born of the angelic floating realm. She pushed against Koona’s shoulders and brought her to meet her eyes. Once again that laser intensity of Koona’s slightly furrowed brows and her rough breath as if pulled the sounds themselves from Cat’s throat.
+
+Cat felt her lips gasp and grasp for Koona’s, which in turn met her, sweetly subduing and pleasing her aggression. Koona’s arms grasped her sides and her thigh moved between Cat’s legs once again.
+
+Cat felt as if every part of her was simply gasping for air, of which Koona was the only source. She breathed in Koona's breath feeling like it was life and sustenance itself. 
+
+
+
++++
+
+
+
+Having felt the silky wet warmth against which her leg glided some time ago, Koona smiled and kissed Cat as she felt her hand trace a slow line up Cat’s inner thigh, moving as if not even of her own volition, upward and warmer. Coming upon the soft slippery smooth wetness of Cat’s desire for her. She shook her head and smiled, kissing Cat more fully with pouted lips.
+
+Koona’s fingers made their way up and over Cat’s labia very lightly sending shivers of delicious warmth and desire through Cat's body. She stroked upward and down through the soft petals.
+
+She knew she could just ravenously take Cat right now but she held herself in check.
+
+She was decided this was going to be slow. Very slow. Everything was viscous, wet and deliberate.
+
+As she guided her finger down and over Cat’s entry, she pulled Cat close using all the strength of her other arm, “Cat,” she gazed deeply and intensely into her friends eyes, “be with me,” as her finger entered her just millimeter by millimeter.
+
+Gazing into Cats eyes, feeling the dynamic contraction and release inside Cat and fueled by the small but sensual movement of her hips, as Cat reached her lips out for Koona nipping for a kiss, Koona could feel her, she was really there, present with her. Exactly what she wanted.
+
+All the feedback to feel that Cat was really part of her, one with her.
+
+Not two.
+
+One.
+
+Both moaned and took turns turning over to tears in the desire to pull her lifetime-estranged beloved closer.
+
+
+
+
++++
+
+
+
+Hours later…
+
+A few stray rays of morning light streaked through imperfections in the wooden slatted shade and on to the wooden bed box and white clad bed illuminating the two, bodies still intertwined. At some moment waking eyes connected, locked, both with their own blossoming version of a blissful smile.
+
+Koona smiled and breathed, “Right?”
+
+Cat nodded with a building smile, “Right.”, as if they were picking up the conversation in the kitchen of the night before without missing a beat.
+
+“Damn straight girl,” Koona returned her sexy lopsided smirk with soft eyes. She pushed her hand into the bed to inch herself closer to her lover.
+
+Cat started laughing and winked, “But not so straight.” Koona’s smile completed into a blush and a chortle as she reached to pull Cat close, “Well no, no, not so straight you. At all. Thank god for that,” as she grazed on Cat’s lips. 
+
+“Jesus, fucking finally Cat,” Koona fell back as if with exasperation with her arm onto her back, sprawled, shaking her head with a pouted smile as Cat snuggled in to hold her and place her head on her lovers breast.
+
+
+
+
+
+# Fabric of Life
+
+> Hospital Moderna, Montevideo, Uruguay
+>
+> March 16, 2015 3:33pm
+
+
+
+It seems that in the dark of anesthesia there is nothing. Just nothing. Anyone who has been under can attest. But it also seems that if things go wrong there is a part that wakes up. And that part awoke to being in a luminescent well-like thin oval, the walls like translucent quartz crystal tile, not orderly like square tiles but more like the mosaic of nature itself.
+
+As she came to her surroundings, it was not at all unpleasant. If fact it might have been the most comforting place she had ever recalled being in this life. Really, was this not just the place she had always been after, with all the longing, strife and work? As well as the passion that drove her?
+
+*Complete embrace.*
+
+“Hmmm, maybe a place I can finally stay and call home,” she said out loud to herself, smiling at the revelation, and then immediately wondering what the hell she was saying.
+
+She knew intuitively she was far inside this cavern of crystal, light and stone. A brilliant white light at the top illuminated a slender figure with flowing dark hair. And by whatever means, she could see the figures eyes, marbled dark brown. With an intensity that startled and awoke Ana from wondering about this beautiful place and sprung her into action.
+
+As if choreographed, simultaneously a rope fell in front of her.
+
+“Ana, grab the *fucking* rope and pull your *sorry self* up!” the figure yelled. But the rope, it looked like a rope but it was made of light.
+
+Ana cracked up,
+
+*…grab the fucking fabric of life… Now that was funny.*
+
+But she sobered herself. She knew to grab it and hold on, the woman up there wasn’t screwing around from the tone of her voice and who was she to not obey such strength from one with such beautiful eyes.
+
+There was a pull, like a suction, a vacuum toward the bottom, under her, she guessed further down. She knew then instinctively what it was trying to do. So she grabbed the rope with all her might, struggling against the pull. Her feet, bare, one and then the other cycling and pushing and trying to grip the crystal-rock side to gain upward traction, her arms completely immersed in holding on. Inch by inch, with aggression and screams, burning up and using all and any anger and frustration from the past, she clung to the fabric of life. And for some reason knew this woman up there made all the difference.
+
+*I must meet that woman.*
+
+*She’s the **one**.*
+
+Slowly, bit by bit and then finally as the top closer neared, easier and faster. She had won. The suction lost its hold and a toned arm with strength and a certain grace reached out for her to hold. The figures hand was strong but velvet, and when Ana felt the hand latch on to her, she knew she was safe.
+
+She grabbed back and clung to the first hand, then the second, and pushing with her feet, helping to the final hoist up and over the edge.
+
+And into magnificent light.
+
+And immediately the brunette woman faded away.
+
+Then Ana’s own feet stuck and even moving at all got slower and more impossible as the light faded down to black again to that place from which the well had emerged.
+
+Not even just black. 
+
+Nothing. 
+
+Not even nothing. 
+
+Void.
+
+
+
+
+
+# Sinking Fortress
+
+*It’s sometimes expedient to forget who we are. —* Publilius Syrus
+
+Sitting in the rubble of a new yet somehow destroyed life, $he came to in a panic.
+
+Eyes were dried shut and felt like they could not be opened. Working gently \$er face muscles both from inside and with \$er hands, finally some life giving tear water began to loosen things up. $he blinked largely and repeatedly but $er eyelids hardly could move.
+
+\$he was sitting on the floor, cross legged. How long had she been sitting?
+
+*I don’t do that. I hate sitting on my ass.*
+
+But her back was straight but but neck forward and head down.
+
+*Where am I?*
+
+*Who am I?*
+
+*Whats my name?*
+
+\$he tried but could not remember. Truly.
+
+*Need to get my eyes open.*
+
+\$he wasn’t afraid. The inability to know more of a puzzle. $he searched \$er memory for the last conscious moment before this one.
+
+What happened?
+
+All of the sudden, in a flash as \$er eyes started to slit open, they caught on \$er purple and yellow hoop against the wall under the window. Just as sleep dreams lay forgotten it seems sometimes for most of the day, in a moment something brings the whole thing back.
+
+*Ana. Anastasia?*
+
+Oh shit. The plane.
+
+*Oh, it was a dream.*
+
+\$er heart sunk. It was like having totally fallen in love and then waking up to find it wasn’t real.
+
+\$he willed to not bother opening \$er eyes more. \$he started remembering and recognized \$er Chiang Rai apartment, who \$he was, \$er life situation and where \$he was. What was the point.
+
+*Only problems out there. What point is there to going on?*
+
+Destroyed. Not if that dream wasn’t real.
+
+As more forms started to make themselves available to her eyes she looked forward and saw the screen of \$er mac, the terminal.
+
+`Mali: Hey K. Its Open Soul…`
+
+Under it was...
+
+`SESSION TERMINATED DUE TO TIMEOUT`
+
+Nothing else. No response, just the blinking cursor. Looking back at the screen. \$he tried scrolling up.
+
+Nothing. No mention of a friends visit, the group, Anastasia, precocious software projects. No crazy free dancer genius. No girl that ‘K wished liked girls’. No TRS-80 with an 8 inch floppy. No Ana, no walks, no park.
+
+Mali quickly opened \$er gmail searching for K’s ‘open soul’ email.
+
+*Nothing.*
+
+What friends she had had over the years, most of them had categorically told her to *never* take drugs.
+
+*This would be why.*
+
+But this was way beyond anything, even for Mali’s active and often overly creative mind.
+
+Suddenly out of nowhere \$he remembered Ana’s words…
+
+*There’ll be a time when you realize the hole of aloneness that was created by your past.*
+
+Weird, \$he thought, it came now that it was like everything Ana said was somehow holographically tattooed in \$er soul. She knew she had access and could remember every word, moment and touch of Ana.
+
+She looked up, the first sunlight shining through the back window. It would soon be warm, hot.
+
+
+
++++
+
+
+
+*Maybe I should go for a walk and practice. Then I can figure things out…*
+
+One thing \$he knew was that movement was \$er anchor and that after 8am, being out in the Thai sun not to mention more people being around, was not fun. And certainly not in \$er current state.
+
+Pulling on yoga leggings and a tank top, she put a circular scarf-bandanna to hold up her hair. Low top Converses. Grabbed a banana, a couple cookies and the water bottle and headed out.
+
+She was glad it was Saturday.
+
+*How do I know that?!*
+
+It was quiet at least, and that made things easier. Probably Saturday or Sunday. Maybe no people out yet.
+
+Walking down the road, past the dog that knew about and wanted $er cookies. 
+
+*I’m not sure even when I ate last…*
+
+Mali needed what food she allowed herself as it was. Even the dog seemed to get it. She smiled as the dog backed off and walked back to sprawl on the side pavement.
+
+*What the hell was this?*
+
+Everything that happened. What was the last thing $he remembered?
+
+Her left side. The airport. The vanishing plane. She felt her body as she walked. Left was still awkward.
+
+*Did I even go to Bangkok?*
+
+\$he made mental note to check \$er records upon returning home.
+
+“Who are you, my left side?” she asked. Because at least *that* was reliable. Given the circumstances it felt like a completely normal question. Just as much as the response \$he got, “I am you, I am Ana.” 
+
+Was \$he making it up? 
+
+“So you are Ana? Am I Ana?”
+
+“I am you. And I love you very much.”
+
+“I love you too. The dream… it was, I guess?” 
+
+“Pretty good, huh?”
+
+“Uh yeah!” Mali smiled. Well, why not.
+
+And all of the sudden everything felt alright. Not just \$er disorientation but everything, for the first time ever, “so you are me, I am you?”
+
+“Now you know your potential. And how good you truly are.”
+
+
+
++++
+
+
+
+“So my name is… could be… Ana?” 
+
+“Could be. You’ll see.”
+
+She was not making the words up, just hearing them in her mind. Ana was talking to her.
+
+Mali quickly did the numerology. The name had the same number as the painstakingly selected and intuited Mali. Hmmmm…
+
+“And my left side?”
+
+“The side you’ve always ignored? Rushed through instead of feeling? Because you have always been too anxious and afraid? So focused on avoiding that you missed reality? The female you?”
+
+“She will grow with you now. If you choose. It’s a choice, all you have to do is say ‘that’s who I am, that’s how I feel, this is who I want to be’. It’s very simple, if you want it. For the asking.”
+
+All of the sudden everything became super simple.
+
+*This is who I am. This is who I choose. This is who I want to be.*
+
+*I am a woman. My decision. No bullshit, no drama.*
+
+It felt so good to say yes. It was really that easy.
+
+
+
++++
+
+
+
+Mali let things quiet down as she got to her favorite gazebo to practice, looking out on a walking path and then on the river.
+
+*She.*
+
+About 50 meters across was the green other side. Some sparse houses, a big nice hotel, and then all the splendor of the Thai countryside.
+
+Getting through her ‘warmup’ which was a whole series of movements she had worked out over years, it came time to stand. Setting her timer for 45 minutes - she needed the full time today, she set her feet and relaxed into the nothing. Into the body, all the sensation, the soma.
+
+Not unlike the day that Ana and she walked to the park, Ana was there. Like outside of her. Mali had her arms up in a circle like embracing a huge beach ball. It was her standard stance, where especially she would start when not having practiced for more than a day. Ana approached gently. Smiling lightly, placing her arms under Mali’s. Mali let go and the pose Ana sustained.
+
+As Ana would gently move, push, pull and tug, she instructed to just follow her. Let go. Not resist. Soft, softer, softest.
+
+“I am going to teach you to be softer than the softest woman in existence...” Ana continued, “in time.”
+
+Mali felt tears of love come to her eyes and let them bleed, “I love you Ana. More than anything - anyone - I have ever wanted or loved.” She felt years of tension and all the anxiety surrounding the past fall away in an instant. She felt the past let go of her too.
+
+“I know. I’m glad you’re home!”
+
+“That plane, I can’t explain how it made me feel.” 
+
+“I know.”
+
+“It was like being torn in two, powerless, fully needing you, and not being able to bear the solitude anymore. The pain of irreversible regret. It was awful.”
+
+“I know. And that solitude, as you do know who you are now, we’re going to feel more of it. For others. The vacuum you’ve lived in, we’ll have to pay for it.”
+
+“Look, you do a good job hiding it. Most of the time. You think you are so open but you are still hiding,” Ana continued. Mali’s apprehension and anxiety peaked, she could feel her heart going ‘what is it? what is it?’. Ana continued, “But once in a while, like when you hoop, dance, when you let go into your innocent laugh, smile and joy,” pausing and staring into Mali’s now softening, vulnerable, gray blue eyes, “there is - right now - the real you peeking out, and like right now."
+
+“There’s a hole in your fortress Mali, and it’s filling fast now. More and more you will have more moments of grace, beauty and strength - spirit strength as all this life you've held out at arms length comes washing in. A beautiful female, if you will own me. But it hasn’t reached your eyes. The brilliance of female eyes, yours are stone still. Not man's eyes either. Of a door.”
+
+“Open that door Mali. For me, okay?”
+
+
+
+
+
+# ~ TRANSIT ~
+
+
+
+# 767
+
+The person who the world would become to know as Ana left Thailand on a Monday in early November after a few months of integration with herself after that fateful day.
+
+On a sequence of three flights spanning almost thirty hours, she had some time to reflect on things in her journal between snoozing and movies. The giant 767 was chasing the sun backward, and in it she owned an entire middle row… laying back, writing in her journal.
+
+*Are we here to passively accept what is and what we are given? Or are we here to create?*
+
+*All of life - well my life - is about creating things. Programs, drawings, music, buildings, beauty, whatever. It's something I can not stop doing. I can not not have a project. In absence of a project I will create one!*
+
+*Isn’t that what nature, god or the universe does, create? And so, if that is the highest then why wouldn’t we also create ourselves? If man is gods image - or is a microcosm of the universe, whatever - why would that not be the case?*
+
+*All people do is create, all of history, all of evolution, we hack at the raw world with what we can conjure… using the tools we have, those we and our ancestors have created.*
+
+*So would god or the universe be happy that we say ‘no, I cant change anything because this is how it was created originally?’*
+
+*Why would living matter if that was the case?*
+
+*In such a case, what would we even be at this point, humans?*
+
+*Why can the architect build the skyscraper but I am wrong to do the same with myself?*
+
+*Of course not. Not only that, the impulse to improve and create. Its in my DNA.*
+
+*Ana is my DNA and fuck me if that's not true.*
+
+*What would I be if I didn’t create myself to be… myself???*
+
+*All I am doing is I am consciously choosing who and how I want to be.*
+
+*In spite of society and culture.*
+
+*Yes, I’m CHOOSING. Because that’s all I can do. Physically.*
+
+*In harmony to how I feel inside.*
+
+*The appearance that grew since puberty is in contradiction to that.*
+
+*Just as the weeds that overgrow the garden, I can fight for myself. Or to change my wording, find the grace to myself, ‘the way back into love’, even if it requires being a warrior.*
+
+*How could our creation stop at things outside ourselves? It can’t and doesn’t.*
+
+*No one on this earth knows the ultimate secret to life, why our hearts came to exist, how cells work and why we long for someone.*
+
+*No one can create from scratch any of these things.*
+
+*So yes, I risk on incomplete information. But I also wager on my heart and spirit.*
+
+*I have stayed on the fence for years. I came here - Thailand - not bargaining for any of this.*
+
+*Then came Cat, K who led me to Face, then Ana. Whatever was dream, whatever was reality doesn't matter, it's a moot point.*
+
+*Cat made me feel the pain of running into the wall I’d created. Face made a big hole in it. And Ana exploded it.*
+
+*Face neutralized my past. And my relationship to humanity.*
+
+*Cat gave the emaciated and dwindling Mali a new life and reborn hope. One where I don’t have to cut off parts of me to be and have who I dream of.*
+
+*I don’t know what will come but I am blessed for what has alone happened. Maybe its just what was needed. The rest, lets not worry about it and trust things.*
+
+*Life handed me my ass for being on the fence. I’m not going to cause myself more suffering.*
+
+*So here I am, going forward, taking my best stab at things with the hand I have been given. I will own everything I do and answer for it, in my success or folly.*
+
+*I’m going to honor Ana. Every living moment forward. Honor myself.*
+
+*Nothing else to write.*
+
+It was crystal clear.
+
+She felt as light and as cute as a button, bare feet up on her seat as they cruised over some lost, dark part of the Pacific Ocean. So small and vulnerable in this mass of metal hurling through the sky, yet powerful in her existence.
+
+Tears came as she felt the magnitude of everything, the past year, the loss of leaving Thailand, in essence where she was born. 
+
+But she also knew it was time.
+
+*Everything feels just right now. For once.*
+
+
+
+
+
+# Coming Out
+
+“Ana, can you hear me?” she heard while a hand nudged her shoulder lightly.
+
+She wanted to smile but her face wouldn’t move really, only her lips curled slightly. And it hurt, as she simply did her best to nod, a motion that now felt strange and although she felt like she was moving greatly, it could have not even shown.
+
+But the voice!
+
+*I know that voice… but from where?*
+
+And then, she was not sure if she had slept or just drifted off, but the next thing she knew she was somewhere else or in a different time, the light was different through her eyelids of her eyes that still could not open.
+
+What she felt was a soft caress on the little area of her cheek. Although her face held pain, the intention and impulse of that caress held information and message that simply stoked her heart and pulled her up and out to…
+
+Finally summoning the strength to open her gritty eyes, slowly and lazily, dark coffee eyes were close to hers.
+
+Smoky dark eyes.
+
+A groggy pause.
+
+*Smoky dark eyes!*
+
+*Was it true, part of it? Cat?*
+
+Ana opened her eyes now fully and widely as excitement has its way of doing. With her trademark right eye squint and all out smile was Cat.
+
+“Heeeey Ana!” she cooed softly.
+
+“But Koona?” Ana could barely speak, “Your girlfriend?”
+
+“No Ana,” Cat chuckled as if having been told a bad joke, “we *were* friends. *That* ended long ago,” she paused, shaking her head, “Oh my god, Ana, you’re really out of it!” smiling compassionately.
+
+Ana slightly moved her head as if to say ‘huh’ but then it hurt and she stopped and left Cat to speak. Cat started talking but she could not understand a word.
+
+An unintelligible sentence punctuated with her wink and smile sent Ana… into another place.
+
+*Am I on drugs?*
+
+*Asleep or awake?*
+
+*I think I’m awake.*
+
+*Really.*
+
+
+
++++
+
+
+
+A minute later, so it seemed although it was actually several hours, Ana opened her eyes.
+
+Somehow remembering the past eye opening experience she comforted herself…
+
+*This feels more real now.*
+
+She expected to see Cat. But when she opened her eyes in the exact place where she imagined, as she focused there was K.
+
+*Kaaaaaayyyy?*
+
+Then it hit her like a train within in a second, *of course, K.*
+
+“Ana, grab the *fucking* rope and pull yourself up!”. Those marbled brown eyes.
+
+*Oh my god, how did I not see this?*
+
+K was sitting on the window bench, back against the wall, legs out and head in her computer. Oblivious to everything.
+
+She looked up upon Ana’s attempt to speak, which was not much more than a whisper…
+
+But even in her state, Ana felt electricity when their eyes met. 
+
+“Ana, holy fuck.”
+
+It was a moment Ana would never forget ever. Classic K. The first words from a friend you haven’t seen in years who magically shows up for your surgery half way around the world.
+
+“How?” was the only thing that Ana could vocalize. “You thought your computer is secure. Well its not.” 
+
+“Huh?”
+
+“I owned your Macbook months ago,” K admitted shrugging her shoulders, a little sheepishly, “Just run \`ps aux\` and you’ll find a process called ‘k’ running with root privileges. You were here alone. I didn’t like that.”
+
+“You didn’t know though!” remarked Ana with the slightest emphasis which still hurt a bit to her tender face.
+
+“I’m a creepy girl I know… Did I go over the top?”
+
+*Jesus, K.*
+
+Ana’s smile broadened the little it could and eyes opened wider, sending a new feeling of pain that \$er eyes had also received part of the surgery.
+
+*No. No not at all.*
+
+“The absence of chatter is also chatter. Come on, you know that!” smirked K as it turned into a playful and most beautiful smile, amplifying the feminine in her face. A side of K Ana was seeing for the first time in person.
+
+Ana tried to smile back but it felt futile so she reached out her hand like a child would for candy. “Oh my god. Oh my GOD. You have no idea,” her voice trailed, “just no idea…” as K lifted to standing and took her hand, as a tear fell from Ana’s eye.
+
+Now she felt afraid.
+
+*What’s going on??!*
+
+She shook her head to herself, at a feeling that if was there she never had felt or allowed.
+
+*No idea.*
+
+“Is everything okay?” K looked worried.
+
+Ana smiled as she could and nodded her head and motioned for K to come close in earshot to hear a secret, “I’m so okay,” she purred, “and so afraid.”
+
+K raised her eyebrows in question at the moment their eyes met. Ana almost silently voiced the word, “sweetheart…”
+
+At that their eyes locked. Ana was amazed how easily *that* word came out, half wanting to stuff it back down, another part knowing it was just a term anyone could use, but deep inside she knew it meant… what it felt here… and felt exhilarated by it. And K at receiving it. And both in that it just felt so good.
+
+“I know…” K responded, telepathically, “… but you should rest.”
+
+As if punctuating the sentence with power, K placed her hand softly but firmly on Ana’s shoulder, a touch that felt just like heaven charged with electricity to Ana. She breathed deeply and lost touch with reality again…
+
+
+
+
+
+# Chaos
+
+>  Sanatorio Finochietto, Buenos Aires, Argentina
+>
+> March 16, 2015 4:32pm
+
+There was a jolt and chaos. All movement was around as first sound came back into Ana’s awareness. Bumps. She was being wheeled. Prone vertigo. Several voices talking at once. Beeping of a machine with the slight doppler effect as they passed it. And she noticed it all with some sort of heightened awareness.
+
+It was dark. The room, the voices and movement, she could only see in her minds eye.
+
+As she came to a bit more, the thing that oriented her was the sting of the trauma on her face.
+
+*The operation??*
+
+Then a focused voice, “Ana? Can you hear me?”
+
+She smiled at hearing her name. Regardless that it hurt. Because she could. Because she was awake again.
+
+*Her* name.
+
+She nodded her head surrounded by bandages because that’s all she seemed capable.
+
+She was alive.
+
+Still.
+
+There was something to even the smallest voluntary gesture that was so life affirming.
+
+“The surgery was very successful. We completed everything,” the woman’s voice continued warmly.
+
+Ana made an effort to smile again, more an effort than an actual movement.
+
+It took effort to speak as Ana all of the sudden realized there in fact was a change in her. Remembering where she was, it all came back. Yes, of course, her face ached mildly. Of course they had done it. Wow! Everything. It was a lot. Oh! That meant they got to the lip lift that they weren’t sure about! This made her happier than anything, for some reason the mouth of her dreams was her secret icing on the matter.
+
+“What time is it?” she asked, needing to have a reality check that this was really true that they ‘did everything’ and time was her immediate checksum.
+
+“It’s about 4:30 in the afternoon. You’ve been under just over eight hours.”
+
+*OMG I made it.*
+
+The bed had come to a stop. Breath was not easy now, and she was out of it, so now having heard everything she could possibly need to hear right now, she turned to the important business of staying alive.
+
+She slowed her breath down and making it longer. It helped breathing in to the nausea. But it felt almost hard to breathe, but bit by bit the faith returned that after each breath would come another.
+
+Breathing now somewhat under control, her awareness turned to her body. She was shaking uncontrollably. Frozen to the core it felt.
+
+But now, she was here, she could hold on. She was nauseous, out of breath, elated and freezing, very freezing. All at the same time!
+
+And she knew she was Ana. They knew too! But everything else? Cat? Oh… uh no… K! Karina. No. She had corrected that. It was K, not Cat. Ana smiled at the thought of her.
+
+Fuck. K? Really?
+
+*I hadn’t come here with K.*
+
+Was she there? Who was waiting for me?
+
+*I’m pretty sure it’s no one.*
+
+*But how sure am I? Was it all a dream?*
+
+*But what part? I know I was in Thailand… Right??*
+
+*Is this one a dream too?* 
+
+Submitting to that she would simply not know for some time, she gave way to going inside and rooting out the nausea and cold from her body. But things being what they were she knew this would the start of something very new in her life.
+
+Unbeknownst to her the morphine drip started to take effect, and she settled into a narcotic haze which would make the next twelve hours both lucid and unreal, sleep come and go without knowing what was what.
+
+
+
+
+
+# Not K
+
+She was not sure if she had slept or just drifted off, but the next thing she felt was a soft caress on her forehead. Although her face held pain, the intention and impulse of that caress held information and message that simply stoked her heart and pulled her up and out to…
+
+*It’s K. I know it!*
+
+Fighting to open her eyes which felt almost glued together, she realized it was just the nurse was taking her temperature. She looked around the room. No one else. No K, only the familiar things she’d left earlier that day...
+
+*Earlier today.*
+
+Just the room, a drip attached to her hand, the late afternoon shadows cast by the other wing of the tall building. Quiet.
+
+Solitude.
+
+A day divided by eternity. Back in room 711. Just as she left it. And alone.
+
+ *Just as I left it. Alone.*
+
+*But it’s okay. OMG, I survived it!*
+
+But what a dream. Was it a dream? What part of it?
+
+In the moments she woke and when she slipped back into dream aided by the slow drip, she bathed in the events.
+
+And K was on \$er mind. As far as she knew — and she’d had now a few lucid chances to wonder about what was real or not or even this now was real. But if so, she also knew that K was a real person she had known in San Diego.
+
+Well, 99% sure.
+
+*As long as San Diego was real. Even before this it felt like another lifetime. And now… it's all a surreality.*
+
+Her bed was angled three quarters of the way to sitting position. It was necessary to minimize swelling, and although they had told her she could lower it, it scared her. Somehow, sitting made her feel less powerless if something went wrong.
+
+Every time she started to nod off she caught herself. She could not breath through her nose which was necessarily plugged with cotton. And every time she nodded off, it’s like her tongue caught in her throat and something in her panicked, feeling she could not breathe. Something in her body made the decision that if she fell asleep she might not start breathing again.
+
+So she kept thinking about everything. She looked forward to so much. Yet the dream she had had, it was so vivid, real.
+
+*I want that.*
+
+*Like Cat and Koona had.*
+
+*Like K being here… *
+
+Ah, but too, she smiled, as her future held what she - then Mali and Ana had.
+
+*Have.*
+
+But feeling the longing got overwhelming, and around three in the morning she could not handle it more and asked the nurse for her computer.
+
+Logging first into her VPN she smiled, knowing that she had a working internet connection, then opening the console, she typed in,
+
+`ana\$ ssh 207.148.248.143`
+
+*See I even know the address to K’s server… how do I know that if that wasn't real?*
+
+The response came back,
+
+`ssh: Could not resolve hostname 207.148.248.143: nodename nor servname provided, or not known`
+
+Not there.
+
+Another try…
+
+`ana\$ ping 207.148.248.143`
+
+Which returned the immediate response…
+
+`ping: cannot resolve 207.148.248.143: Unknown host`
+
+Then…
+
+```
+ana\$ nslookup 207.148.248.143
+Server:		192.168.0.1
+Address:	192.168.0.1#53
+
+** server can't find 143.248.148.207.in-addr.arpa: NXDOMAIN
+```
+
+Does not exist. Not real.
+
+*Except in my heart forever.*
+
+
+
+
+
+# New
+
+It was true.
+
+There’s the image of yourself, who you feel to be inside. Then there’s who you see in the mirror.
+
+And then how others seem to see you by how they respond to you.
+
+Who they treat you to be.
+
+And in between all of these, the insane voices of judgment and conflict - from self and others - when the two worlds don’t match up closely enough.
+
+*Of course things felt wrong. Duh!*
+
+The story of her life was crystalizing moment by moment this afternoon, all the fragmented paths and reversals all of the sudden creating a perfect mosaic… how she’d felt… and withdrew… and hid… defended…
+
+*This is the other side.*
+
+She scanned the approaching dusk of the fall evening approaching Montevideo, her first evening stroll since surgery.
+
+*I’m on the other side!*
+
+Her eyes were laterally checking out her image in the store windows as she walked. It was DMD’s instructions, no exercise, hooping, yoga or whatever for some time, but walk as much as she could handle. And so she was going to do that. Aside from regular two hour naps most days, bit by bit she was stronger.
+
+Today was even more special as finally, after a week, the last of the bandages had been removed, the cotton in nostrils and strip of tape from her nose which she’d joked about having transitioned to being a wild boar so she can scare people. And although there was still reasonable swelling and the fact that DMD had told her that the final result wouldn’t become apparent for about a year, the reflection back at her made her very happy.
+
+She smiled back at her image, elated. Amazing.
+
+*I’m me.*
+
+She turned and began walking, smile still in place.
+
+It was 5pm and people were streaming into the sidewalk flow.
+
+Her eyes met with those of a cute 30-something woman and clicked. The girl held the gaze - *wow, how long??! -* and then smiled wide back warmly, *almost seductively??* Anas heart dropped open, a feeling of warmth sprouting in her core, as it did, eclipsing the anxiety and fear of contact. Or of what she was used to. Being ignored. If seen, deflected. Or worse that weird cloud of confusion that she read as fear and repulsion on the part of the other.
+
+*Much less than that, attractive.*
+
+The warmth ran up her body back into her heart...
+
+*I could get used to this.*
+
+A deep breath spontaneously released and kept her in the flow, not clinging to the contact of the past moment. There would be more. For sure.
+
+It would take time. There would be ups and downs. And tremendous past experience and conditioning to work through over the months and upcoming years. But in this moment she knew deep inside that the chasm between that inner self-image and feeling, all that insistent, seemingly compulsive pushing toward the fem had been right.
+
+*Ana had been right.*
+
+*How I feel. Who I see and who others see. It will never be perfect. Heck, it isn’t perfect for anyone in this world.*
+
+*But now… it feels closer, close enough… for me to be happy. I’m ready to live now, finally!!!*
+
+
+
+
+
+# ~ OMAHA ~
+
+
+
+
+
+# The Smile
+
+It was now a month since arriving back home to Omaha.
+
+And a year living as Ana, since the fateful embrace of her. The old Mali had started to feel like another person, another lifetime. A transitional person. Someone she loved, a time she would cherish forever, but never wish to return to. Well and even more Mark.
+
+And everything was different. Just almost.
+
+She smiled into the store window she’d stopped in front of, pausing pretending to look at the shoes but really checking out her own reflection. Her smile grew as she’d been accustomed to in recent weeks.
+
+Then she let the smile go. She saw a feminine yet kind of boyish face. So she smiled again seeing blossom again the feminine beauty of her face.
+
+She remembered what Ana had told her during the integration phase…
+
+*There’s still 30% masculine in you… don’t disown that, don’t reject that. It’s still me.*
+
+She nodded...
+
+*I think I can accept that.*
+
+Whether incidentally or by design, it seemed that DMD had built into her face something ingenious…
+
+*The need to smile.*
+
+Her face wasn’t perfectly feminine she often thought, even boyish without makeup. But it still made her happy. And when she smiled, her cheeks inflated over the slight implants DMD had placed. And when she smiled, she was fully Ana.
+
+When she smiled - and the emotions around smiling came through, she was to the world fully female.
+
+*So I have to smile!!!*
+
+She swore that carrying even a slight smile, as many women do, is simply something that allowed her to stay in connection with her true self. As a man, you’re not really taught or so often rewarded by smiling.
+
+*When I smile, the edginess of the past goes away…*
+
+What had become clear in the month was the effect of not only a physical change but what it was enabling in her temperament and approach to life in the social world. With a feminine face, her confidence had skyrocketed. She was standing taller… straighter…
+
+*But not tooooo straight!*
+
+She remembered one of her childhood pictures just at the cusp of puberty. Her face now was that face, had the hormones not kicked in. Cute, peaceful, playful. More pretty and cute than boy, but not frilly or anything. She smiled to herself this time…
+
+*Never did really understand the foofy frilly lace and tutu shit.*
+
+*I'm no fucking sissy, that's for fuck sure*
+
+She felt normal. Pretty. Attractive even. Men were looking at her and she was no longer as an object of ridicule as had been all too common. Women seemed to see her as one of them, with no questioning, confused or fearful looks. Well sometimes, she was starting to see that actually she seemed to be percieved as a bit of a threat even. It was amazing.
+
+To the casual passer by on foot or car, she was female. She was essentially off the radar. People often looked at her and it made her anxious still, but little by little she decided that it was because she was a tall, attractive woman. With all the other social input, that was the only plausible explanation.
+
+Although it was like PTSD that in a funk or bad mood that she could still feel the despair of the past and loose herself in it… until she walked in somewhere and was greeted as ma’am or simply saw her reflection in a window or mirror.
+
+It was like the world was now set up to build her up when she was down, not the opposite, the past so often she just felt like everything was a downward spiral - fighting for her femininity and self-esteem in a constant stream that seemed designed to bring her down.
+
+It wasn’t that she was perfect.
+
+She often felt that when she opened her mouth, people figured out that she was transgender. Or simply different. Not that she had a real deep voice or anything, but it was just her own.
+
+But it was that she liked what she saw. *I like who I am now. I never did before. Its not because I have a better face.*
+
+*Its because my face lets me be who I am.*
+
+*I actually don’t mind being seen as transgender. It’s who I am.*
+
+*This is my face.*
+
+*I’d trade none of this for anything…*
+
+
+
+
+
+# Gender Confirmation
+
+“What would you two gals like this morning?” the waitress asked. Jessi arched her brow at Ana and smiled.
+
+After the waitress left, Ana broke in, “better get used to it,” as she gently gave Jessi a kick under the table.
+
+It was like Ana had cast a spell on everyone, Jessi thought to herself. Where there had been always background noise surrounding any social situation, now it was simply quiet. No one was staring or repeatedly looking over at them. No weird looks. No asshole bumkin pricks whose sexuality, gender or piece-of-shit religious beliefs were being offended.
+
+It was like they were invisible - as just two women meeting for breakfast are in a crowded cafe. Something she’d never experienced with Mali in the past. There was always that back chatter… at best. Nothing she wasn’t able to help handle. But still.
+
+“It’s incredible though. Because you are you, the you I’ve always known, and I see the difference too. Well, and you’re now Ana. But you’re still you. But to new people, strangers, they only see Ana, and this being has always been Ana.”
+
+“Yeah. And a thing maybe you’ve not thought of but, yes, all this surgery has an aspect of vanity. But it’s social. It’s also for safety. Now when I walk on the street, I’m off the radar. I’m seen as female. Unconsciously even. I pass by. Without question. Or even if they do look and question, they can’t absolutely tell. It would be similar to the danger of asking an overweight woman if she’s pregnant to say anything… I’m now socially dangerous to mess with. Besides that, I think I’m just invisible much of the time.”
+
+“Not so sure about *invisible* with those endless legs you’ve got.”
+
+Ana smiled, cocking her head to the side but then looked thoughtful and sad, “though it’s bittersweet, as there are many transwomen who don’t pass, before or after surgery. I’m just very lucky. The other thing is that this gender thing is just a bag of bullshit!” she cracked up.
+
+Jessi nodded with a little snort herself.
+
+“But I have to say, it’s amazing to fit in, at least more. It’s been months and it’s not that I don’t have like this PTSD that makes me anxious,” Ana paused.
+
+“You know, some friends made remarks that I lived as gender non-conforming because I wanted attention. When I was in the middle, in between. They were so going like ‘MK is amazing, he doesn’t care what others think… it’s inspiring’… but the fact is, I give a shit, way too much. I really just want to be, to fit in and belong. I’ve never belonged before, not really!” Ana rhuminated, "and certainly not to anyone," as she looked down a bit sadly.
+
+Their food arrived and they went quiet digging into the delicious vittles. Jessi was not only elated at her friend’s transformation, but there too was something different between the two of them, a change, but something she could not name. A lot must have happened since they last saw each other.
+
+“So tell me more?!” Jessi pushed back on her hands, crossing her legs on the comfy bench she sat on. Lisa’s Radial Cafe had already been packed with the Saturday morning crowd and now only more. But she wasn’t going to cut in to this leisurely time with Ana, it had been now going on almost two years since the two friends had seen each other.
+
+“It’s like before surgery, you know, it got surreal. I did not know if I was imagining things that people were staring at me or laughing or saying things. I felt attractive. Sometimes others made me feel that way but then I’d turn the corner and get laughed at. Very confusing…” Ana paused collecting her thoughts, “So there was this noise level, right? Like background noise over music, and it was loud, distracting.”
+
+“Can you imagine, wherever you go people see and treat you as something you’re not inside generally? Then if you’re striving toward who you are but not there yet… It’s so easy to withdraw and push it all back down… You know how I was!”
+
+A tear fell from her eye as she remembered,
+
+“Then there’s the built-in response against such constant feedback, a kind of self protective mechanism. Angry, feeling like fighting. Which then in turn took me away further from who I am. Then you blame the assholes who treat you badly because you hate yourself for not being yourself.”
+
+“And so the cycle continues until you emerge victorious over it or are destroyed.”
+
+Ana placed her head in her hands, elbows on the table. In a moment she felt the warmth of Jessi’s hand on hers. And like magic Ana smiled and looked up ready to continue.
+
+Their eyes caught and held for a moment. Longer than a moment. Moments.
+
+Jessi nodded, smiling back, knowing her friend well enough to let her talk to completion and not cut in.
+
+“So, now, that noise level… it’s hardly there. And when I think it’s there a bit I catch myself generally.”
+
+Jessi raised her eyebrow for elaboration.
+
+“Because when I feel insecure, in the next moment someone - a stranger is referring to me as she or miss or ma’am. Every business I walk into I’m treated as female. And then I realized it was all in my head - well most of it… It’s just PTSD.”
+
+“And you’re still your sweet soul,” Jessi smiled, squeezing Ana’s hand that she still kept hold of.
+
+*There’s something new here… I never considered…*
+
+“I don’t know how sweet I always was, I felt like I was angry so much, a complete pain in the ass!” Ana laughed and nudged Jessi across the table, “Well, truth be told, I’ve always been Ana, just behind the clouds” she smiled widely, “And it’s weird, this whole bathroom problem this country seems to have, it’s like I completely bypassed it.
+
+“To be honest, I was looking forward to the bitch or asshole who ever gave you a problem, but looks like I’m out of a job,” Jessi raised her brows, smiled and shrugged.
+
+“Well, there are others that may need your help.” 
+
+Jessi nodded, understanding what Ana meant, “So what else?”
+
+“The first day I walked through downtown Montevideo after my surgery, I saw myself in the shop windows. And my smile grew and grew. And it’s never left since.”
+
+“I can tell. I see it. Before, you didn’t like to smile so much. Well, you smiled a lot but you didn’t like pictures or anything.”
+
+“True that. But now…” Ana proceeded to pull out her phone and scroll through a whole series of selfies.
+
+Jessi palm slapped her forehead, “Fuck Ana, you’re becoming one of those!? Too much time in Thailand, I think!”
+
+Ana realizing something big changed the topic, “You know Jessi, like now when I pass people on the street, women especially, they don’t look afraid. They always used to look afraid - often - when I passed and tried to make eye contact,” she paused remembering the years she looked more masculine, “And it hurt, every time I could see a woman catching sight of me going to the other side of the street. It felt so wrong. It’s just not ever been my nature to be any kind of threat.”
+
+“Maybe it’s because you’re happier and smiling more?”
+
+“I thought that too. But I think having masculine features on the face - its intimidating, scary even. I think some of it is that,” then Ana got choked up and her eyes filled with tears, “Jessi, the thing is *now* I feel like my face looks how I feel inside. Before… before it was like I felt so warm inside but everyone was afraid of me or just hated me. And I guess a long time ago I decided to wall that off because it hurt too much. Over time I forgot who I was. Who I was was not okay to be. But now… little by little… I feel safer. Now they see me - more. And there’s more of me to come…”
+
+Jessi felt a wave of emotion come to her eyes. Without actually living such it would be impossible to really know but she imagined, she had never felt closer to her friend as in this moment.
+
+“And then today at Jiffy Lube, it’s weird, the guy just looked at me like nothing. Sometimes I still don’t know how people are seeing me.”
+
+“Well, get used to it girl,” Jessi smiled.
+
+
+
++++
+
+
+
+The conversation turned to lighter topics for some time, but Jessi had a nagging question she just needed to know now. For some reason.
+
+“So now that you’re… passing… and been on hormones for some time, have you a new sense of your ‘*preferences’?*” with the last word punctuated with a suggestively arched brow.
+
+Ana nodded.
+
+“When I went on hormones, you know, really, a good dose, my desire for women just doubled. But not like only sexual, you know, I’ve always longed for this kind of bonding feeling and that has just gone kinda astronomical,” Ana then remembered the last part of the apparent hallucination during the surgery, “To the point that I was hallucinating a special girl to be there for me after the operation in the recovery room. Like I didn't actually know anymore what was reality it was so strong and real.”
+
+Jessi looked down and sad for a moment, playing with her hands, “I’m sorry I wasn’t there for you. I feel bad now. In retrospect, I guess I did not realize what a big deal this was, and you’d been away so long… what was really going on.”
+
+Looking back up their eyes met again. This time they held it in silence.
+
+Jessi broke it first, pulled away by some movement in the window behind her, the ever vigilant Jessi.
+
+Somehow the way she turned her head, the sun ricocheted off the windshield of the car parked out front across her face, kind of in an angelic light. Ana’s eyes widened, and she cocked her head. Squinting her eyes a little. She shook her head. It was like a flashback and she was trying to capture it. Like looking for the root of the deja vu.
+
+“What?” Jessi shrugged her shoulders and furrowing her forehead a bit.
+
+Ana just shook her head.
+
+*Ana, grab the fucking rope.*
+
+“You were there.” Ana drawled softly, emphatically. Jessi raised her eyebrows*.*
+
+“I never noticed your eyes this way, this light… maybe,” Ana stuttered, “uh… were your eyes always like this?”
+
+Jessi nodded, “um… yeah…*”* she drawled out in no-duh tone and grinned.
+
+But then again that look back now, green through eyelashes slightly upward at her, and that smile. Ana felt penetrated her to the point of insecurity as her heart dropped and warmth spread though her body.
+
+*What is going on?*
+
+Ana shook her head again.
+
+*Do women look at each other this way?*
+
+“What is it?”
+
+“You wouldn’t believe it if I told you.” She remembered everything now.
+
+Those marbled eyes. It wasn't just K. She had forgotten.
+
+“But you know what’s best? Is I feel hope again. On the other side. I long to meet an amazing woman and I feel ready to have someone with me in my life. Now that I’m right with myself. I feel a green light.”
+
+Ana paused speaking for a long while, and Jessi was about to pipe in when she continued.
+
+“Look, it’s not just the surgery. It’s everything that came with it. And now it’s up to me to be more… me. Out. Express fully what I feel inside. Not just alone but everywhere,” she winked in the way Cat would have at Jessi.
+
+*What a friend I've got. If she only knew. When I get home… I’ve a lot to sort through here…*
+
+Jessi herself was one step ahead, perhaps without knowing it, perhaps knowing. She was now just watching Ana, shaking her head with a knowing smile.
+
+“What? What is it?”
+
+Jessi rode it out… Payback time. 
+
+“You’re really different now.”
+
+Ana smiled, “Well, I am more fabulous, that’s for sure!” Ana arched her brows a bit and turned a lopsided grin.
+
+Jessi smiled seductively, shaking her head, “Ana, you’re not just fabulous, you’re totally hot.”
+
+And that *same look* coupled with the Cat trademark eye squint.
+
+Ana pinched her own arm under the table to make sure *this* was reality.
+
+
+
+
+
+# Stereo PTSD
+
+“Wild boar in Omaha?” Ana was making a crack to Jessi as they strolled. She was in love with the wild boar and no one could dissuade her. They were so cute. And she suspected, other than that, what she loved about them, in seeing their beauty and spirit, was how generally unloved and misunderstood they were.
+
+*That* she could relate to.
+
+“No, Ana. Just you.” Jessi had already learned in detail about the wild boar from Ana.
+
+“The only wild boar in the village,” Ana drawled, smiled into a snout and exclaimed playfully, “it’s fun!”
+
+They were downtown walking down Howard Street in the Old Market area. It was late Saturday afternoon and the usual steady evening crowd was out. Many dressed to the T, or whatever that means in the midwest. Ana was in jeans and a form fitting black-gray fleece hoodie, which in not too long would be traded for her heavy winter coat.
+
+She looked good.
+
+Amazing in Jessi’s opinion.
+
+They walked by a couple in their thirties. It was like a flashback for Jessi. A couple years ago they were here not unlike this. Passing some men and women in their late 20’s. One man had turned and stared at - then Mali - returning to his companions to whisper something in which the group turned around. Well at least several of them. Words were said she did not want to remember.
+
+It also culminated with something physical between Jessi and one of the men.
+
+*Guess who won.*
+
+“Last time we did this I had to learn how to get a bail bond,” Ana nudged her elbow into Jessi’s rib, lightening the mood knowing what was probably on her friends mind.
+
+Jessi was sure Ana remembered too but had no heart to relive the moment. She breathed in, almost unconsciously now though and furrowed her brows slightly as the man turned.
+
+Catching sight of the two, and clearly Ana, he lengthened his look.
+
+Jessi set her crosshairs.
+
+The reality of what he saw was a slender tall woman. Other than attraction and *that* feeling of curiosity that attraction brings, that was it.
+
+He turned back to his companion. *That’s a nice looking tall woman*. Said nothing and they walked on.
+
+And now another group, this one more like the rowdy group from the past.
+
+Jessie took a deep breath.
+
+But it was again a non event. No one turned around. A couple of the guys looked over at Ana, and Jessi, kind of smiled. It was almost a nice moment. Seeing nothing ‘off’, returned to their trajectory and kept walking.
+
+And so was the story Jessi had seen all afternoon. The first time they’d really been out in public together, their breakfast the previous weekend aside.
+
+“You know what’s fun Ana?” Jessi piped up, raising her arm to slow Ana as if she wanted to make an important point, “This. *This* is amazing. You’re right. You’re better than invisible. I mean you’re seen and appreciated… but you’re being read as a female. No one even fucking questions it. I mean, I see you, too you told me but seeing the actual difference… in literally the same context is amazing.” 
+
+Ana smiled, “I told you!” but then got a little serious, “truth though, it works until I open my mouth. Then I think people figure it out.”
+
+“Ana, there are women who have lower voices than you. In fact, I’d take your husky voice any day over some fem girly girl womans any day.”
+
+Ana nodded. It still took time. This all took time. But day by day, bit by bit, the PTSD of being seen as a man and all that went with it, was starting to wear off, at least enough. And especially when she was in the loving presence of friends and companionship. Company was the inoculation to all that seemed to otherwise ailed her - anxiety, self-consciousness, and most of all, she was realizing empirically that it was only in company that she really could be her true self.
+
+What a change from the ‘man’ who needed to be alone so much to regroup all the time and often left social gatherings feeling icky.
+
+Despite all the worry, concern and risk, she had proven herself right. The part everyone told her was not right or not to follow. Well almost everyone.
+
+*Proven Ana right. Finally.*
+
+“You know Ana, I think I really get the PTSD thing. Look at me how I’m also living in the past a little. If I am, I’m sorry… I feel like I should apologize to you, because I know you look basically like a female model now, but I still…”
+
+Ana smiled, “It’s always… It will always be nice knowing you have my back…”
+
+*Where did that come from?*
+
+
+
+
+
+# Tough Customers
+
+There we’re days of other realities too though.
+
+Particularly when Ana flirted with androgynous dress that she was so much was attracted to… that she could be more edgy… a side of her that was the flip-side of Mali but as a woman. It was all confusing in transition as one puts passing as a woman above everything just for your own social psychological and emotional happiness. But even in the months pre-surgery, she’d wondered about the day if she could be in the likeness of one of these edgy queer-lesbian women she’d often admired.
+
+“Thaaat’s a maaaaan,” a heavyset sweaty black woman drawled to the woman next to her on a bench as Ana passed by. It was a big crowd at the street fair. As Ana’s heart dropped she cursed crowds. She hated crowds. She’d just felt good to come today.
+
+True, she had pushed the limits of androgeny today in a hip length baggy jacket and having underdone her makeup. But still…
+
+A few minutes later she heard from behind, “fucking waste of a woman,” some amorphously shaped, ass-less, probably conservative hick went about commented to his friend in Ana's ear sight.
+
+Ana froze again for a second. She felt it. She’d always feel it.
+
+It still hurt. And it would take some time in coming for her to fully own herself socially. She did hope that one day she would be able to not have to look in a mirror or depend on others to remember she was okay.
+
+*I’m okay. It’s okay.*
+
+And just the fact she realized this, she knew too that she’d come a long way and was on her way.
+
+Well that, and Jessi had just texted that she was already here… somewhere.
+
+Little did Ana know, she was being stalked. Jessi had been lagging behind just ‘appreciating’ her new companion. Who in her opinion looked great. She used all her will-power to not cause that hick some pain, although she did turn and look the asshole up and down with a long pause at his beer-belly, making sure he noticed her, before shaking her head and turning away, with the result of deflating his masculinity at least for the day.
+
+She was now though silent as a cat upon prey as Ana was in frozen contemplation-land now over at the side of the path, under a shade tree.
+
+It was now or never.
+
+This was one of *those moments* she’d contemplated. Maybe Ana did not need her but she wanted to be exactly here and nowhere else and with no one else. This wasn't normal stuff. She knew better than pretend.
+
+*I mean, to have the impulse…then to actually do it. She’s only told me the tip of the iceberg…*
+
+*I know enough to know I’ll never find another one like Ana.*
+
+*This is once in a lifetime and the time is now. There’s no one that could hold light to who Ana is…*
+
+*I saw Mali before fighting, a kind of enigmatic being, and then through whatever happened there in Thailand… is if an almost new person… to connect to that whatever it was in her and then fight with life toward it, with all the questions, the not knowing…*
+
+*Who in the fuck does that? Who in the fuck can do that? On her own, alone, wandering the world?*
+
+*Tell me what other woman I know has even in her finger what this took?*
+
+
+
++++
+
+
+
+Jessi through her life, having spent most of her 20’s at increasing ranks in the military before burning out and coming into the physical therapy field, knew first-hand some amazing people and many inspiring true stories.
+
+*But… not like this…*
+
+*The world rewards heroes.*
+
+*But to go against everything the world rewards because… you’re trying to be whole, have integrity…*
+
+*Something that no one rewards you for at all - even the opposite! At least, at best until you’re ‘already done’ transitioning…*
+
+*Then they reward you if at all.*
+
+Jessi had been experiencing this new feeling since that breakfast with her friend a week ago - which now seemed forever. Like a high school girl with a crush. Only this one had a depth she’d never experienced…
+
+*The most beautiful thing…*
+
+*I just look forward to spending more… so much more… time with her.*
+
+It didn’t hurt but was also a little confusing how attractive Ana was physically now to her…
+
+*But not just her face… how she is. Moves, expresses.*
+
+*… but too, who she is. That strength. It’s the most fierce thing I know someone to ever do.*
+
+If there was anything Jessi respected it was fierce honesty.
+
+*I wish I’d seen this, known this before. I feel like a sham.*
+
+*Could I have seen this in her before?*
+
+*It was just different then… we were friends… But it was so different.*
+
+*Mali was not Ana. Maybe she was there but Mali was like a wall.*
+
+Jessi had always known she liked girls. Just as simple as breathing, and no one in her family was at all surprised nor attempted to interfere with her wishes. Ever. Not that they would have had a chance. She was loved, about as unconditionally as a child could be.
+
+*I want to be there for her now. Regardless of what I’ve lost in time.*
+
+*Ana, your transformation is the most exciting thing to me.*
+
+*Your being you is exciting to me.*
+
+*I want to be there for you, to support you.*
+
+*You have a depth that no genetic woman could every have.*
+
+*And I want that.*
+
+*I’m sure.*
+
+She’d never really had this feeling of knowing she wanted to just be with one woman going forward. After the games and heartbreaks of high school and the schizophrenic reality of mid- western lesbian woman who are fighting who they are and with the world, often to the detriment of having something real together. At least it seemed to her.
+
+No woman had really ever for her sparked the excitement of a real future. An exciting future. A future of adventure, not sitting front of a television eating junk food.
+
+*Ana is funny, smart, playful, so many things… a great companion.*
+
+*These things I’ve always known. Why didn’t I see this before?*
+
+*Will she hate me or think me insincere? Now that she’s ‘on the other side’… now she’s wanted?*
+
+*But not before???*
+
+ Jessi started to cry. 
+
+*How fucked up is this.*
+
+*How fucked up I am.*
+
+*Am I any different than the men, who on one side ridiculed her and now are attracted?*
+
+She knew regardless that she had always supported Mali, tried to understand and be a good friend… now Ana…
+
+*But I still feel… like a hypocrite.*
+
+Like so many lesbian women, heck any woman, who already have their hands to just live and be happy, she’d just never considered dating a transgender woman… much less what ‘being transgender’ actually meant. Much less understanding that a transgender woman could also be lesbian in orientation.
+
+As well, she had no scarcity of genetic woman at her feet when she wanted to meet someone. No one transgender had ever lined up.
+
+*But this is different. It has depth.*
+
+Jessi, like every woman alive, could see the potential in those around her… especially those she felt affect… much less…
+
+*This much.*
+
+*Maybe there are still more steps for Ana. And I want to be there for her if there are.*
+
+She knew from intimate conversations that Ana had not had gender reassignment surgery and was undecided about it. Upon reflection Jessi faced and decided to herself that ‘the equipment’ did not matter. Not in this case.
+
+She had trouble putting the feeling into words, only that being with Ana felt like the most real and wholesome hope in her life. Like the relationship that she’d always been after. Real, dynamic, changing and exciting.
+
+*I know Ana is always going to grow and that’s what I want. Anyone who has lived how she has… not just transgender but the way she’s done it… Fearless, alone, strong… I know I’ll never be bored with such a person.*
+
+*I want to hold her and build her up when she needs strength. And I want her to pull me along to things that only she knows how to.*
+
+Jessi had always been a bit in awe of Mali’s… now Ana’s focus and mental ability in programming and systems work, coupled with her creativity.
+
+*And she’s a hacker. That’s sooooo cool.*
+
+So now Jessi, for a woman who was afraid of nothing, became terrified of what she was about to do.
+
+
+
++++
+
+
+
+Jessi caught up with Ana stealth silently, from behind, intending and radiating warmth and safety, matching Ana’s posture precisely. In a moment, pulled back to reality, Ana felt the most gentle and firm embrace envelop her like a wave. At first she tensed, on edge from the events already transpired.
+
+But in a second she became present enough to smell Jessi’s musky scent as she felt long hair brush her neck. She smiled and turned her head.
+
+“I witnessed all that,” Jessi whispered softly in her ear, “are you okay?”
+
+Jessi embraced her tighter as if to reinforce the intent behind her words.
+
+Ana smiled. Nothing had ever felt so good. She’d never felt so safe perhaps in her life. She turned her head forward feeling sheepsh away from Jessi behind her and she nodded.
+
+*More than okay.*
+
+*Now.*
+
+*But… is this how girl-friends hold each other??! Was it what she…*
+
+“Fuck Ana, you know I like girls…” Jessi breathed in a husky voice, stating the obvious, “You may as well know I like you…”.
+
+But there was no chance to complete the thought as an electric signal fountained warmth throughout her body…
+
+“I mean I…” Jessi stumbled, “really… a lot…” Jessi’s husky breathy voice encoded an entire volume, “I mean it, do you
+
+understand?”
+
+Words… being embraced… all from a certain heartbreaker of a woman… who was holding her closer than anyone has ever… The friend, the amazing woman she never even conceived of even dreaming of… the deep anesthesia aside…
+
+Jessi turned Ana around still holding her and smiled. “Is it okay? … uh… I said this… mmm uh… that I like you?” the ever confident Jessi pulled back just so much and looked uneasy.
+
+*Maybe Ana doesn’t feel this way for me. She knows I’m a sham.*
+
+*What the fuck am I doing… I’m insane.*
+
+*Is it okay that you’re into me??? Jesus Jessi.*
+
+Ana shook her head causing a microsecond of jeopardy in her friend but then pulled Jessi hard to meet her smiling lips.
+
+Jessi brought her hands to hold Ana’s cheeks, bringing Ana’s lips more solidly to her own.
+
+It now felt like forever had just begun.
+
+
+
+
+
+# Caged Spark
+
+> *Man did not weave the web of life, he is merely a strand in it. Whatever he does to the web, he does to himself.*
+>
+> — Chief Seattle
+
+*And what she does to herself, she does to the web.*
+
+Ana paused at the educational sign, smiling poignantly.
+
+The simmering late afternoon sun shown in the subdued way that only fall sun can on the Fontenelle Forest as Ana entered the park through the gate. 
+
+*Ah, the beauty of fall,* 
+
+*Like a harvest, time of the Jewish New Year, school starting, beginnings…*
+
+*… making it poignant the fact that it announces winter. That next season over, the last one, the end of things as they are, the end of life, figuratively.*
+
+*It’s like fall is everything life affirming, a time of warmth and bonding, coming home, yet ripping through the heart to remind us at the same time that none of this is forever and in fact, the end is only the next season over.*
+
+*How many of us forget to cherish the fall because of the winter approaching? Why are Christmas decorations put out before Halloween? That’s evidence the zombie apocalypse has already come…*
+
+*If smartphone-weilding-humans weren’t enough…*
+
+She smiled, cracking herself up. Zombies were on her mind. She was looking forward to going with Jessi to the annual Zombie Walk this weekend in Benson, a nearby neighborhood…
+
+Inhaling a deep breath of the warmish wooded air that held a crackle of cool crispness, she reveled in the passing beauty that in a few short weeks would be transformed to winter.
+
+She walked down the wooded path, a kind of boardwalk into the forest, after some minutes down the wooden stairs and onto a dirt path down toward the train tracks and river. Suddenly she felt - well heard - but felt - a strong rustling and she looked up the hill flanking her in its direction. A silk dark-blue-black crow had its wings spread but something was wrong. Trying to fly, it could not. Struggling. Flapping wings, and clearly an anxiety and fear provoking a desperate struggle given Ana's proximity.
+
+She pushed some foliage aside and walked up toward it. She had never really realized how relatively large crows were.
+
+*Dunno, maybe it’s a raven?*
+
+Regardless she looked at it and felt an instant connection, of life, of embodied intelligence, even emotion. And then she saw, wedged in between a rock and a root, it had its leg caught.
+
+Piercing black eyes met her own. Fear and aggression covering its complete vulnerability. She felt tears and she knew why. The same spark of life. An alive eye. It’s window, and she could see inside it. Aliveness. Life. Awareness. Spark. Struggling.
+
+*Striving, struggling. To be. A program deep inside to be everything it can…*
+
+And not even able to make use of its wings to any satisfying end lest it loose its leg.
+
+She started to cry. She knew exactly the feeling. How long had it been there, stuck? The crow would be dangerous if she approached it, and as if on cue with the next step toward it, it showed its fierce beak and made a head jab.
+
+Just as dangerous as she had been to everyone around her in all that ‘in-between’ time. A caged spark, knowledge of joy and potential yet unable to fly. Unable to surrender to her own vulnerability lest she be attacked for it. Infinite frustration. Unable to meet the core need to fully be… Justified anger and defensiveness. Even against the one who could set it free.
+
+At that moment a compassion set in to her heart, not only for the bird but for herself. To forgive herself for all the things that made her feel like a bad person to others, especially in the past. And even now. She wasn’t perfect or would ever be.
+
+She walked down the hill looking for something she could use. Spotting a dying tree still holding out a thin but strong twig- branch, she approached. It had a kind of curved hook at the end.
+
+Perfect, she thought. She thanked the tree as she pulled to snap it.
+
+Back at the bird, she, now from over six feet away, slowly and tentatively reached the branch out, nudging the root the crow was caught in to try to dislodge its trapped leg. The bird fought with it as it could with its beak, with what seemed to be far from substantial, with what remained of its life force but finally surrendered unable to reach it, and as Ana wanted to believe, started trusting her. Finally enough as Ana wedged the enprisoning branch up, the bird pulled its leg free and tentatively stepped away from its captivity.
+
+And just stood there.
+
+*“Sail away,,* little bird*”* thought Ana to the bird, as if telepathically, feeling inspired and powerful, empowered by the life force itself she felt deep in her core.
+
+At first the crow just remained, staring intently at her, not knowing. Then as if whispered to from that place way beyond where the spark of all come from, it turned and jumped to the top of the rock, perching, considered its surroundings and with nothing short of the force and grace of a highly trained dancer, or the tigger-princess herself, launched itself into freedom.
+
+With a flutter and air pressure displaced to rival the power of any human-made aircraft.
+
+*“Sail away...”* She whispered it only, to keep from completely breaking down. Knowing well that for both of them one day it would all end. Sooner or later. And it would always be too soon.
+
+She instinctively opened her arms wide to the sky. Now the emotion and tears simply ran though her like electricity unimpeded through a wire.
+
+*Open soul.*
+
+
+
++++
+
+
+
+Making her way down the hill, around by the still lake near the train tracks, she caught her reflection in it and stopped. Looking down into the clear pool her cheeks turned up in her now trademark snouted smile as had become customary at the prompt of a reflection. Pretty large blue eyes gazed back at her own.
+
+The dark amber of the late fall sun whispered words of temporality and eternity. She smiled quietly at her reflection*.* And in that moment she saw that her eyes were now the true windows of the soul they had been born for.
+
+Ana had been right.
+
+
+
+
+
+
 
 ## About
 
-Until I add more here... I can be contacted at:
-\n\n
-{%- if site.email -%}
-<a class="u-email" href="mailto:{{ site.email }}">{{ site.email }}</a>
-{%- endif -%}
+Alexi Karuna (aka Shrew), perhaps the most heart-bleeding romantic transwoman in existence is an explorer. Passing thorugh what seems multiple lives within a single traversing careers, spiritual and growth disciplines not to mention genders and identities, countries and cities of residence, the unifying force is learning to uncover, become and love who she has always been. 
+
+Living for years as a tech-nomad, she found her way to self-acceptance and ultimately gender transition by the perspectives one gets on oneself and live by not belonging in any one place and feeling different places and cultures, in addition to gaining a clearer understanding of who she was - and who she is not. She currently resides in Philadelphia, works as a Systems Reliability Engineer (SRE) and continues to explore the world, but even more the depths inside and her own heart.
+
+Alexi can be contacted at alexi@shrew.info. Instagram: @i_am_shrew, Youtube: @i_am_shrew
