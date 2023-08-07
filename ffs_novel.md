@@ -10,8 +10,6 @@ When Cat and Mali meet, a friendship develops allowing each a place of deep expr
 
 
 
-
-
 ## Chapters
 
 [Dedication](#dedication)
@@ -140,30 +138,20 @@ When Cat and Mali meet, a friendship develops allowing each a place of deep expr
 [Tough Customers](#tough customers)
 [Caged Spark](#caged spark)
 
- 
-
 [About](#About)
-
----
-
-
 
 
 
 ## Dedication
 
-> To...
-> Who has always been here but for acceptance, a name and outward appearance.
-> Who never gives up searching, often on the tail of a feeling and a distant hope.
-> Deciding to trust oneself, body and feelings, even when the external world has come up empty on answers.
-
-
+*To...*
+*Who has always been here but for acceptance, a name and outward appearance.*
+*Who never gives up searching, often on the tail of a feeling and a distant hope.*
+*Deciding to trust oneself, body and feelings, even when the external world has come up empty on answers.*
 
 
 
 # ~ ANTECEDENTS ~
-
-
 
 ## One Day
 
@@ -412,11 +400,7 @@ Not.
 
 
 
-
-
 # ~ BEFORE ~
-
-
 
 ## Koona
 
@@ -459,8 +443,6 @@ _I wonder if we’ll loose this when one of us gets married._
 Koona’s husky voice modulated close to her ear, pulling Cat off-guard out of her world-off thoughts. 
 
 She turned her head to Koona with a broad smile as her world, one that was so orderly and bright teetered, like a glass ball balanced at the edge of a precipice.
-
-
 
 
 
@@ -618,8 +600,6 @@ Because today they do.
 
 
 
-
-
 ## Shocked
 
 Cat had turned her head in the direction of her friend’s husky voice. Koona’s now striking soft alpha face was very close. Dark eyes, wide, with what seemed like perpetual and indelible makeup that was just their natural beauty. They searched Cat's own coffee brown before they traveled down to her lips. Koona was leaning over and it was only inches that now separated them. 
@@ -651,8 +631,6 @@ But not foreign.
 _So from where?_
 
 Without warning she felt her feet brace against the pool wall, as if not her own, with them and a feeling of giddiness, her hands pushed off like a rocket and buried herself in the water. As deep as she could. Holding her breath as long as she could. No thoughts, just the impulse action of activity, of doing something, anything to maintain her world intact.
-
-
 
 
 
@@ -759,8 +737,6 @@ And do due diligence to know what this mystery inside _actually is_.
 
 
 
-
-
 ## Dee and Dee
 
 Cat plunged deeper into the twilight water, continuing to hold her breath for what seemed like a super-human time, and through it a series of semi-conscious thoughts passed that never quite made it through to prime time… 
@@ -798,8 +774,6 @@ Cat’s heart dropped.
 Koona was no longer there. 
 
 Or anywhere.
-
-
 
 
 
@@ -847,11 +821,7 @@ _The perfect woman._
 
 
 
-
-
 # ~ DESPAIR ~
-
-
 
 ## Standing
 
@@ -1121,8 +1091,6 @@ _Instead, me!_
 
 
 
-
-
 ## Thai Reality
 
 Outside the steel fence, the tranquil greenery abruptly ended and the concrete jungle began. The park was bordered on three sides by the gigantic ‘tanons’ - boulevards - the same of which could be found all over the city. Cars - many cars - densely populated the road, coming into existence just as the light of day too had come to pass.
@@ -1236,8 +1204,6 @@ _Like tonight may be._
 It was virtually guaranteed to be. 
 
 But the unknown was in which direction.
-
-
 
 
 
@@ -1440,8 +1406,6 @@ Although $he wanted to see this in $erself, there was not a bone in $er body wit
 And did it work?
 
 _Not really._
-
-
 
 
 
@@ -1649,8 +1613,6 @@ _Oh yeah, that’s exactly the life I have right now._
 
 
 
-
-
 ## Frustrated Shaman
 
 Mali promptly excused $erself from the restaurant. $he felt pinned down and backed in a corner, not in a good way. Setting out $he just walked. $he could have taken a cab or the Skytrain but walking was $er medicine. The conversation with Cat only brought to a fever pitch $er own inner dilemma.
@@ -1754,8 +1716,6 @@ She heard immediately in her head the name Ana.
 _Ana?_
 
 _Who is ‘Ana’?!_
-
-
 
 
 
@@ -1974,8 +1934,6 @@ _Angel or demon._
 
 
 
-
-
 ## Re-Koona
 
 _First Koona, now Mali._
@@ -2023,8 +1981,6 @@ Cat felt weak in her stomach. “Koona ka? Is that you?” as tears migrated to 
 “Cat ka?” the voice sounded hopeful yet wounded.
 
 “Koona ka, can I see you na ka? Karuna ka? I need to see you… please?!”
-
-
 
 
 
@@ -2264,8 +2220,6 @@ Riding the waves. Finally feeling the vortex of forces $he was enmeshed in.
 
 
 
-
-
 ## Recollections
 
 Leaning against the windowed wall of the quirofano, Terrasanto took a deep breath and watched his two protegees, Salvatorre and Rivera as they completed the stitching and de-prepped the nose and completed forehead. But his attention turned to Ana which brought an inner chuckle and smile. At that moment his phone rang - it was his wife - and as so, gave the signal to the team as he stepped out of the room.
@@ -2313,8 +2267,6 @@ Which Castaña knew Ana would take as feeling completely misread, as Ana’s ema
 “Si mi querida, bye!”
 
 Terrasanto hung up.
-
-
 
 
 
@@ -2606,8 +2558,6 @@ But nevertheless, as $he entered Central Chiang Rai today, $he put on the smile 
 
 
 
-
-
 ## Reunion
 
 The roofbar was crowded as always and full of life. A veritable fixture at the top of one of the most salient skyscrapers in the Silom area of Bangkok, touted as one of the best rooftop bars in the world. Where wealth flowed, a respectful demeanor and anonymity held. A guilty pleasure of the friends even back in university days when they could scarcely make ends meet, it was their place to come and dream. Even then they dressed and looked the part, and now, upon reflection, they both had made it real.
@@ -2790,8 +2740,6 @@ Koona broke the expanding chasm, “It’s getting late, you want to see my new 
 
 
 
-
-
 ## Open Soul
 
 _How long does a dark night of the soul last? Can it last a lifetime? Cause this one’s dragging…_
@@ -2900,8 +2848,6 @@ It was a good as a time as any to take care of business in Bangkok…
 _Get my visa fixed for the next few months…_
 
 _And…_ 
-
-
 
 
 
@@ -3053,8 +2999,6 @@ $he _could_ go somewhere else. To get perspective. That was an idea. And however
 
 
 
-
-
 ## All Living Things
 
 _All living things fear being beaten with clubs. All living things fear being put to death. Putting oneself in the place of the other, let no one kill nor cause another to kill._  — Buddhist saying
@@ -3119,8 +3063,6 @@ All of the sudden, what $he saw paralyzed $er heart and made $er stop in $er tra
 
 
 
-
-
 ## The Klong House
 
 “Seriously Koona?” exclaimed a wide-eyed Cat, as the cab stopped in a very working class neighborhood, almost ghetto. It was a long way from Koona’s previous plush condo towering Ploen Chit.
@@ -3154,8 +3096,6 @@ Cat smiled, “Yes. And water. Definitely water. I’m so thirsty,” but her ey
 _Thirsty for what really are you?_
 
 _Jesus Koona._
-
-
 
 
 
@@ -3409,8 +3349,6 @@ _Much less care._
 
 
 
-
-
 ## Japanese
 
 As Koona went to the kitchen and was filling the glass Cat felt a shadow. Something eerie. This place felt almost Japanese. Substitute the bed with a futon and you had… 
@@ -3440,8 +3378,6 @@ Still with fear but ready to talk, Cat spoke, “Koona, I’m so afraid,” her 
 “What happened just now? Where were you? What were you thinking of?”
 
 “I was looking at your place. It reminded me of Japan,” she paused as if wondering if to say what was next, “It was a place… not unlike this…” Cat trailed, “it’s so weird…”
-
-
 
 
 
@@ -3721,8 +3657,6 @@ Mali smirked then actually laughed at the image. Pretty funny.
 
 
 
-
-
 ## Cat's Heartbreak
 
 “Koona,” Cat looked searchingly at her friend. The memory had returned and it was like a knife in her side. It would hurt to pull out, but now discovered, it would have to be exorcised.
@@ -3894,8 +3828,6 @@ Koona waited in silence, intending to give her friend space, and after a minute,
 _So typical. The perfect Japanese woman. Wouldn’t know she’s asleep aside from that she has just stopped responding._
 
 Koona went to the bedroom area and her eyes quickly fell on her soft body-length pillow. With a glint in her eyes she grabbed it along with a light comforter. 
-
-
 
 
 
@@ -4105,8 +4037,6 @@ _And be so with a woman._
 
 
 
-
-
 ## Sarai
 
 Over these days at the resort, one of the visits to the past $he made was to Sarai, the first transgender woman the 'he' of back then was with, one of the handful of events that started making ‘being a man’, in romance and sexuality, something that could not be returned to...
@@ -4280,11 +4210,7 @@ _Where does that leave me other than with a knife in my hand and a seemingly imp
 
 
 
-
-
 # ~ CAT ~
-
-
 
 ## Un-American
 
@@ -4445,8 +4371,6 @@ _Maybe you can._
 It was pretty anathema in her culture to even have this thought not to mention act on it. But it was what she felt in the moment, the seed starting with Mali's friend request.
 
 Mali felt at ease again and smiled, “Great!”.
-
-
 
 
 
@@ -4766,8 +4690,6 @@ As Cats head disappeared from view down the escalator, Mali turned and began to 
 
 
 
-
-
 ## Away
 
 The strong current of A/C felt welcome against Mali’s face as $he settled in the cab and peered out taking in the morning Bangkok street. Although the night had ended up being a late one, $he wasn’t tired at all, nourished it seemed by the essence of Cat. Sleeping in an unusual luxuriousness in the luminance and luster, the hovering of Cat’s presence and touch, actually feeling _like_ Cat. 
@@ -4809,8 +4731,6 @@ _Hmmmm…_
 It had been several years since $he had liked anyone enough to ask this question in anything but hypothetical reality. The last time $he tried it in reality with a woman, it had been a train wreck. 
 
 And so much time and life had passed since then. And so much more femininity had overcome $er.
-
-
 
 
 
@@ -4962,8 +4882,6 @@ The clock of life was ticking and this conflict was not going away.
 
 
 
-
-
 ## Skype
 
 Mali had Facebook open. Cat had just posted a picture of a chocolate cake she was about to eat. $he had already Liked it some minutes before. And had typed a Comment ‘Where IS that? It looks sooooo good!’ $he knew better but pressed enter by some force in $er $he had no control over. Regardless of $er inner conflicts this action was _not_ not going to happen.
@@ -5066,8 +4984,6 @@ And the distance allowed $er to continue sitting on the fence with $er drawn out
 
 
 
-
-
 ## A Plan
 
 Mali pushed $erself up the stairs to $er second floor apartment. Hot and just on the edge of sweaty from the late afternoon trek through town in the smoldering orange of late Chiang Rai afternoon sun. Plastic bags of vegetables and other miscellaneous groceries in hand, opening the door, $he released them on to the floor while taking $er shoes off. 
@@ -5149,8 +5065,6 @@ Cat's polish and perfection had to have come from somewhere. Mali shuddered and 
 Why was Cat being so open - at first it was just Cat - but with her family? It seemed that Thai families were quite private, not to mention with foreigners. 
 
 All things considered, Mali was thankful that Cat had only informed $er of this now and not the other day. 
-
-
 
 
 
@@ -5240,8 +5154,6 @@ As if reading Mali's mind, Cat brushed $er forearm, “Come on, let's enjoy the 
 
 
 
-
-
 ## The Restaurant
 
 Over the hills and through the woods would certainly describe where they were going. After about forty minutes driving and admiring the lush country scenery from the dark tinted windows, from fields and tree lined roads to foothills and hilly curves, Cat announced that they were almost there, just up this hill a bit more. 
@@ -5317,8 +5229,6 @@ Cat looked at Mali, “I want to hear,” she smiled.
 $he pulled out the bench and sat down, Cat joined $er at the edge, “Is this okay?”
 
 “More than okay,” Mali smiled back. Everything felt just like home.
-
-
 
 
 
@@ -5417,8 +5327,6 @@ Cat made an unconscious nod.
 _Everything was always better with my best friend._
 
 _Fuck…_
-
-
 
 
 
@@ -5529,8 +5437,6 @@ Mali was speechless again. It kept getting better. All this reminded $er of the 
 “You okay?”, yelled Cat, already inside the structure. 
 
 Mali had spaced out. Coming to, $he hopped up along the last fifteen feet of the path and up the steps to a new paradise. 
-
-
 
 
 
@@ -5658,8 +5564,6 @@ And at this point beyond Cat and Mali’s too.
 
 
 
-
-
 ## Parting
 
 As the Hong Kong black Mercedes entered the city proper, Cat, who had been in a daze watching the scenery and looking just a bit tired, probably just to keep Kwan at bay for the ride, turned across to Mali, “Look, there is my sister’s school, Chiang Mai University!”, she pointed over to the right as they drove by, “Its a nice campus, tranquil and pretty place to enjoy. I wish I could have taken you there today.”
@@ -5719,8 +5623,6 @@ Cat opened the door and got out, with Mali in tail.
 She smiled, “Talk soon.”
 
 “Perfect," Mali smiled back.
-
-
 
 
 
@@ -5962,8 +5864,6 @@ And in an equally remote place with $erself inside.
 
 
 
-
-
 ## Surprise
 
 > _The absence of expectations results in the reduction of disappointments._   
@@ -6014,8 +5914,6 @@ So regardless of the fact that neither had communicated to the other in now over
 Mali felt finally good again in $er heart. $he smiled and took a breath as $he went on $er way. 
 
 Oh, in HIS heart I meant to say.
-
-
 
 
 
@@ -6264,8 +6162,6 @@ Down a block and a turn.
 
 
 
-
-
 ## Are We There Yet?
 
 Looking down at the puddles they were walking through, both with reasonably nice shoes, clothes that were virtually plastered to their slender frames, Mali smiled. 
@@ -6387,8 +6283,6 @@ $he looked in the mirror, grabbed the comb and ran it through $er hair. $he look
 “Are you coming?” Cat whined from across the apartment, “You’re slower than a wom… geez, oh, okay,” she corrected herself. Mali shook $er head smiling.
 
 Ready, $he opened $er door and made $er way.
-
-
 
 
 
@@ -6592,8 +6486,6 @@ Suddenly they both caught eye of the cloud of smoke and a flame rising from the 
 
 
 
-
-
 ## Only You Are Confused
 
 “No!” Cat screamed fanning her hand over the flaming shrimp stir fry. She laughed looking down at the smoking mass as it abated, “how about we order something?!”
@@ -6769,8 +6661,6 @@ It felt so good to be asked. Even more so by Cat. In this apartment-cocoon of he
 Mali returned Cat’s magneto-dominant gaze with the opposite polarity. For the first time in $er life, outside of $er own imagination.
 
 “Let’s go sit in the living room, okay?” Cat got up and held out her hand for Mali’s and led $er back to the living room. 
-
-
 
 
 
@@ -6974,8 +6864,6 @@ Mali in $er abandon had gotten a piece of frosting stuck to $er lower lip and be
 
 
 
-
-
 ## The Actual Dessert
 
 Cats room was secluded and dark. At first it seemed windowless but as Cat fumbled with a switch, Mali realized it had just another angle of the amazing view as the windows seemed to lighten in tone magically. 
@@ -7081,8 +6969,6 @@ They helped each other liberate the leggings, leaving Cat in her silk black bra 
 Cat reached up to Mali’s shoulder and pulled herself up to $er face, her body pressing fully on Mali’s still clothed body. Which in another few beats became intolerable so Mali broke the kiss and in one movement liberated $erself from the shirt-dress. 
 
 They were a perfect match, both slender, toned and smooth. Feeling Cat’s skin touch full frontal against $er was the electric heaven $he’d been after. 
-
-
 
 
 
@@ -7286,8 +7172,6 @@ But Koona was not here and would never be.
 
 
 
-
-
 ## I Think I Should Go Now
 
 The two sat across from each other at the sun-swept kitchen counter-bar. 
@@ -7454,8 +7338,6 @@ Authentic.
 
 
 
-
-
 ## Back Alone
 
 Cat sat on the sofa passively staring out the window as the minutes passed by. There was of course all that had passed with Mali, and that of course needed attention. But she was inclined elsewhere. She felt kind of cold to push Mali out, but she was glad $he had left. She was feeling suffocated.
@@ -7544,11 +7426,7 @@ Still laying on her mat in $er underwear, $he pinched $erself and it seemed to h
 
 
 
-
-
 # ~ LAY OF THE LAND ~
-
-
 
 ## Such Misery
 
@@ -7800,8 +7678,6 @@ And slept.
 
 
 
-
-
 ## On the Moon
 
 Cat stood in front of the mirror, in the reflection behind a pile of clothes on her bed, all outfits she’d tried and discarded before finding the perfect one for tonight.
@@ -8002,8 +7878,6 @@ A dance the Thai could play par excellence. Cat winked back at Koona as they bot
 
 
 
-
-
 ## Parallel Life
 
 Omaha, Nebraska
@@ -8085,8 +7959,6 @@ Jessi looked over at what Natalia meant. Ana was standing over on the playground
 The other two joined, Jessica as a background dancer and Natalia shyly alternating holding the hoop like she was looking through it as if what was going on in front was a TV show, and shyly twirling it above her head. 
 
 Natalia’s family never moved again. Jessi was challenged but never defeated - in smile or in physical prowess. And Anastasia became, well stayed herself, generally known as Ana. Tucked away in time, in Omaha, waiting to be discovered.
-
-
 
 
 
@@ -8218,8 +8090,6 @@ _Fuck this!_
 
 
 
-
-
 ## The Motley Crew and Thailand
 
 Fate was set in motion at the LGBT dive in downtown Omaha. On the outside was was the rainbow flag, and in small almost invisible letters were the words _The Dive Club._ It was their place. A place where Jessi got along with everyone including the guys - _well they’re gay guys… gay guys are cool —_ and well… it was not like the West Omaha sports bars, or what Jessi would call, _prick gardens_.
@@ -8273,8 +8143,6 @@ They were all virtually in tears not from any single thing but the combination. 
 Jessi pulled on her leather jacket and got on her motorcycle. Anastasia in her black BMW 500, her ridiculous character foil, giving Natalia a lift to the start of the road about a mile from her house. The answer always being, ‘Why? because I like it, I like to walk’. 
 
 ‘Insane’ thought Ana as she dropped her off. Natalia was of all of them the most successful and owned a small acreage at the edge of town.
-
-
 
 
 
@@ -8355,8 +8223,6 @@ Mali felt distance now from her.
 It was like putting these clothes back on, knowing this direction once again was confirmed right, inside $er. It allayed the neuroticism of recent and and the whole situation over Cat. As well, after this hellish weekend facing $erself, $he realized too that Cat was not out of her mind at all for saying no to $er. Who in the fuck shouldn’t say no to someone in the place $he was in life? $he could hardly handle $er own red flags, how could anyone else?!
 
 So the answer was easy and $he sent it off.
-
-
 
 
 
@@ -8534,8 +8400,6 @@ It was as if $er body could feel a parallel existence and it already knew how go
 
 
 
-
-
 ## Really.
 
 _I even told those fudge-packers I liked Michael Bolton's music._  
@@ -8693,8 +8557,6 @@ The kind of crying that happens when you’ve lived a lie and lost your bet.
 
 
 
-
-
 ## Home Again
 
 On the cab ride back from the Chiang Rai airport, it started to rain. Pour. Cats and dogs was actually a better description. The airport was quiet at this night hour, and felt remote from the small city, and the city from Bangkok. Traveling in the taxi on the country road leading into town, the buildings and streets, evening, Friday night quiet. Felt like $he had been away for ages. 
@@ -8728,8 +8590,6 @@ _Hi. I am you. I am part of you. I feel. I long to love. I love being free. This
 Mali reached one arm up at a time, lengthening $er torso and neck, longing for the sky. 
 
 _Being this, and dancing, it makes me feel alive where nothing else does… or did._
-
-
 
 
 
@@ -8876,8 +8736,6 @@ _But if it still is… it will be faster than an email. Cause she's always there
 Although Mali often had trouble remembering names, phone, street numbers and IP addresses for some reason could stick for years and years. They had a certain feel or flavor to them. 
 
 Mali: _Hey K. Its Open Soul…_
-
-
 
 
 
@@ -9036,8 +8894,6 @@ Damn it! $he had not expected this memory. $he was so sorry and hurt about all t
 _But I’m still at a complete loss to have done anything differently._
 
 Even if plopped back in the same place and time with her back then, $he still did not have an answer or a different path. Hence $er need for some help off this fence and reaching out for K.
-
-
 
 
 
@@ -9294,8 +9150,6 @@ It seemed like K had gone and Mali was not ready yet to let go. But then a true 
 
 
 
-
-
 ## Terrasanto's Wonder
 
 The pieces - spear-like pieces of a few inches, really, not slivers - of white bone, tarnished with areas of blood and membranes sat atop the metal cabinet on a laid out white surgical choth. 
@@ -9337,8 +9191,6 @@ Which anyway was the last bastion, because then came her first hair transplant, 
 And then at some point between when she had first contacted him and now, there was a whole, integrated woman. Cara de hombre or not, he chuckled, Ana was here to stay and had made that clear in her emails and how she had showed up in Uruguay. Surgery or not. And that was what he wanted to hear and pushed her to communicate in some way that convinced him. He thought of his wife. He thought of what it really meant to ‘serve the world’ and if Ana had any idea who she touched - and was going to - by following her heart.
 
 She was not the first and surely far from the last of such a person he would see. 
-
-
 
 
 
@@ -9415,8 +9267,6 @@ Mali contemplated for a second the fact that although knowing K was gay and the 
 $he felt the impulse, as was with strong people in $er life, to want to make K proud and go on the mission, after which first agenda was to find another crack in that wall of hers and find out what was going on in K’s life.
 
 $he’d never known K beyond this level of mysteriousness. But here K was, seemingly trying to help $er in earnest, even sending $er to do ‘weird stuff’ for $er own wellbeing.
-
-
 
 
 
@@ -9630,8 +9480,6 @@ _Jesus, Cat, stop!_
 
 
 
-
-
 ## The FACE
 
 _You will not be punished for your hate. _  
@@ -9744,8 +9592,6 @@ As they met eyes as Mali came to exit, $he could see beyond the doubt the light 
 
 
 
-
-
 ## The Way Back to Love
 
 The other gang-monks were nowhere to be seen when Mali reached the parking area. For which $he was glad as $he was barely coherent as it was. 
@@ -9848,11 +9694,7 @@ _Just that this was big._
 
 
 
-
-
 # ~ HOPE ~
-
-
 
 ## Hello World
 
@@ -9942,8 +9784,6 @@ SESSION CLOSED
 
 
 
-
-
 ## Hating on the Road to Bangkok
 
 > _The best day of my life is the day I am free to be myself as I am. The day that I have a smile wherever I go and laugh easily and often is a day lived at its fullest. I am complete. Game over, nothing else to seek._
@@ -10025,8 +9865,6 @@ Why couldn’t $he just be open, smile and love? And not give a damn what anyone
 *In the mirror at home it starts.*
 
 $he continued to repeat it like a mantra as $he walked. Found a cab. Actually smiled and was friendly to the driver. And soon was aboard a plane destined for Bangkok. 
-
-
 
 
 
@@ -10280,10 +10118,6 @@ The funny thing too, with each improvement in femininity - the hair transplants,
 
 Mali shook $er head, looking downwards and smiled.
 
-
-
-
-
 # Dress Wearing
 
 Arriving back to \$er room,\$he hung up \$er new dresses with the hangers provided by the hotel and arranged the other items and accessories \$he’d bought on the nice white counter that extended from the wall.
@@ -10375,10 +10209,6 @@ Mali racked \$er emotional brain and couldn’t find a spark of the old nostalgi
 In less than rational or very conscious manner, as a pre-bedtime snooze came over \$er the words came to \$er,
 
 *Now I think I’m ready for Anastasia.*
-
-
-
-
 
 # Anastasia
 
@@ -10542,11 +10372,7 @@ It was such an amazing connection. Mali wanted Ana. But not like that. Well, yea
 
 
 
-
-
 # ~ AUTUMN ~
-
-
 
 # The Pumpkin Head
 
@@ -10795,10 +10621,6 @@ Cat pounded the arm of the chair absently in despair. It didn’t occur to her t
 Fact was in Cat’s mind, Koona 2.0 was super-competent to handle any situation she’d encounter. She had this kind of bigger than life way that still had not wore off to normal humanity in Cat’s heart.
 
 *Maybe never will.*
-
-
-
-
 
 # Snoutmark
 
@@ -11126,13 +10948,7 @@ Ever.
 
 Mali had no idea except the power of what \$he’d just experienced. That this was just the start of such hands-on ‘in the real world’ embodiment and poise education from Ana.
 
-
-
-
-
 # Streetlight Silhouette
-
-
 
 “What the fuck?!” Cat said aloud to herself.
 
@@ -11243,10 +11059,6 @@ Her body went weak and she hardly had the strength as she whispered, “I’d li
 *But I really have to find out… for sure. Because this time it matters.*
 
 Koona knew she could not create a life being cast into these hetro-emulative roles other Thai women created for themselves when pairing with another woman.
-
-
-
-
 
 # Going Crazy in a Park
 
@@ -11360,10 +11172,6 @@ Ana knew things. But also knew something else,
 
 “Agreed,” Ana affirmed with a big smile and angular nod of her head, smiling \$he took Mali’s hand, “come on, lets get packed up!”
 
-
-
-
-
 # Secrets
 
 Koona, freshly showered and in a light yellow burlap cotton kimono, emerged.
@@ -11472,10 +11280,6 @@ And Koona suspected it might be another kind of eternity for herself.
 
 *I want more.*
 
-
-
-
-
 # Out
 
 As Mali laid on the comfortable couch in a near stupor, \$he reflected.
@@ -11572,10 +11376,6 @@ As Ana fell asleep Mali reached her only free arm around to return the hug.
 
 And they were out…
 
-
-
-
-
 # Deepening
 
 Morning light filtered through the opaque white curtain. Mali laid on her left side with left arm under the pillow, her bookend Ana laying on her right side. They both seemed to have awoken at the same time, open eyes gazing into those of the other. A smile. Not ordinary. For Mali this was not even like waking up with Cat. Cat was still ‘another’. Anastasia felt much closer. Like herself, if she were aware of those terms and tried to describe it. Ana was the best of what Mali would want to be. Perhaps could be.
@@ -11647,10 +11447,6 @@ Ana next pulled up to Mali and gently pushed her on her back, laying her soft he
 “If you can sniff them out, I have no idea where here.”
 
 "Oh I can sniff them out, you just watch!"
-
-
-
-
 
 # Thai Pancakes and Watermelon
 
@@ -11944,10 +11740,6 @@ They had now climbed out of the lake and onto the shady grass to dry out a bit a
 
 Something about the water, the surrender necessary just to be *here* in it*,* and those words. Everything. Mali broke into full sobs, curled forward for privacy, letting the tears stream and drop onto the grass. Ana’s hand rested on \$er back around \$er heart, which was opening.
 
-
-
-
-
 # Escaping the Ten Minutes
 
 “Sweetheart, I know we’re on almost no sleep but… if we stay here,” Cat breathed, “I can’t speak for you but we won’t make it three days even.”
@@ -12163,10 +11955,6 @@ Koona smiled, comforted by the opening and new level they’d so quickly reached
 But this conversation had given her a gift of seeing how easily they could continue to talk about things like this… and it made her feel excited for… a lot more love. True love.
 
 “Help me know everything about you, Koona, okay?”
-
-
-
-
 
 # Searching for Godot
 
@@ -12412,10 +12200,6 @@ A dream clearly meant to slip through her fingers, again and again, until she ow
 
 “Thats encouraging,” Mali laughed, taking Ana’s nod for her own, “given the circumstances, I must not be far off…”
 
-
-
-
-
 # Reflections from a Motorcycle
 
 DMD took leave of the quirafono and walked out to his motorcycle, parked out in the back parking structure, where there was a nice mix of warm afternoon sun coming in among the shate on the west side. It’s something perhaps many patients don’t think about. Surgeons are people. And long operations, well, everyone needs a break and to nourish themselves. Hence the team. The fact of his regular visits here to 'disappear', here, in the parking structure, at the edge where he could reflect and look out upon the city, has surprised everyone he’s mentioned it to.
@@ -12494,10 +12278,6 @@ And so it was. Why was it he always came out and sat on his motorcycle to eat hi
 
 He chuckled, as he called it ‘the no-plan plan’*.* How many doctors could say that about thier years of study?!
 
-
-
-
-
 # Farang Kon Katoey
 
 “Farang kon katoey,” is what Mali heard, and then the ensuing laughter between the couple that had passed them. The woman said it. It meant literally “foreigner ladyboy person”.
@@ -12565,10 +12345,6 @@ But at the same time everything still felt like home.
 *This was different...*
 
 *Equally strange.*
-
-
-
-
 
 # Soi Katoey
 
@@ -12752,11 +12528,7 @@ Mali felt determined now, as \$he was, face and all, to find some way to be okay
 
 
 
-
-
-# ~ TRUTH ~ 
-
-
+# ~ TRUTH ~
 
 # Girlfriends
 
@@ -12839,8 +12611,6 @@ Koona smiled sheepishly and pursed her lips, averted eyes now looking up to meet
 Koona looked confused. The too recent and familiar hurt inside reared its head but she tried not to show it.
 
 Cat smiled, “I said no. No… It’s not stupid,” shaking her head, “But, you have to ask me appropriately, Koona” she winked her trademark and came close to gently nudge Koona’s shoulder with her own.
-
-
 
 
 # Aussie Ape Man
@@ -12988,10 +12758,6 @@ Mali looked around. Still wanted to kill someone. But \$he recognized the truth 
 “Exactly. But thats not the emotion, thats the discharge. In real time, I suspect that maybe you don’t go there much at all. What did you really feel when we walked by that prick garden over there?”, pausing again, “if you really really felt, like as you were when a child? Early early on?”
 
 “Prick garden?” Mali started laughing in earnest.
-
-
-
-
 
 # Going Deep
 
@@ -13235,10 +13001,6 @@ And it was there. SHE was always there.
 
 “So Mali, there’s a difference between focusing on the pure you inside, versus being focused on everyone, everything and every inspired doubt around you. Come inside, connect to yourself always… if it helps, connect to me. You’ll become stronger, more resilient and more yourself. Walk through the world now with that connection…”
 
-
-
-
-
 # Loi Krathong
 
 “Mali, it makes sense given the hand you’ve been dealt…”
@@ -13394,10 +13156,6 @@ Slightly annoyed at the disruption with her girl, Koona quipped, firing back, �
 Ana winked at Mali, “I think… I’ll be hanging around… so to speak.”
 
 Another Ana WTF koan given it had become known to Mali that her return flight was tomorrow.
-
-
-
-
 
 # Separafusion
 
@@ -13635,11 +13393,7 @@ Ana’s last words before turning and boarding the plane haunted Mali, “and on
 
 
 
-
-
 # ~ REVELATION ~
-
-
 
 # Codigo Rojo
 
@@ -13678,10 +13432,6 @@ His felt his chest compress in anxiousness as the team worked quickly.
 Not having anything else he could physically do, he spoke to Ana,
 
 *You’ve come too far, you chose this, you know who you are. If only for us here, come back and be this person you’ve fought so hard for.*
-
-
-
-
 
 # Intertwined
 
@@ -13912,10 +13662,6 @@ Cat started laughing and winked, “But not so straight.” Koona’s smile comp
 
 “Jesus, fucking finally Cat,” Koona fell back as if with exasperation with her arm onto her back, sprawled, shaking her head with a pouted smile as Cat snuggled in to hold her and place her head on her lovers breast.
 
-
-
-
-
 # Fabric of Life
 
 > Hospital Moderna, Montevideo, Uruguay
@@ -13967,10 +13713,6 @@ Nothing.
 Not even nothing. 
 
 Void.
-
-
-
-
 
 # Sinking Fortress
 
@@ -14166,11 +13908,7 @@ Mali felt tears of love come to her eyes and let them bleed, “I love you Ana. 
 
 
 
-
-
 # ~ TRANSIT ~
-
-
 
 # 767
 
@@ -14249,10 +13987,6 @@ Tears came as she felt the magnitude of everything, the past year, the loss of l
 But she also knew it was time.
 
 *Everything feels just right now. For once.*
-
-
-
-
 
 # Coming Out
 
@@ -14370,10 +14104,6 @@ At that their eyes locked. Ana was amazed how easily *that* word came out, half 
 
 As if punctuating the sentence with power, K placed her hand softly but firmly on Ana’s shoulder, a touch that felt just like heaven charged with electricity to Ana. She breathed deeply and lost touch with reality again…
 
-
-
-
-
 # Chaos
 
 >  Sanatorio Finochietto, Buenos Aires, Argentina
@@ -14441,10 +14171,6 @@ Was she there? Who was waiting for me?
 Submitting to that she would simply not know for some time, she gave way to going inside and rooting out the nausea and cold from her body. But things being what they were she knew this would the start of something very new in her life.
 
 Unbeknownst to her the morphine drip started to take effect, and she settled into a narcotic haze which would make the next twelve hours both lucid and unreal, sleep come and go without knowing what was what.
-
-
-
-
 
 # Not K
 
@@ -14528,10 +14254,6 @@ Does not exist. Not real.
 
 *Except in my heart forever.*
 
-
-
-
-
 # New
 
 It was true.
@@ -14586,13 +14308,7 @@ It would take time. There would be ups and downs. And tremendous past experience
 
 
 
-
-
 # ~ OMAHA ~
-
-
-
-
 
 # The Smile
 
@@ -14659,10 +14375,6 @@ But it was that she liked what she saw. *I like who I am now. I never did before
 *This is my face.*
 
 *I’d trade none of this for anything…*
-
-
-
-
 
 # Gender Confirmation
 
@@ -14817,10 +14529,6 @@ Jessi smiled seductively, shaking her head, “Ana, you’re not just fabulous, 
 And that *same look* coupled with the Cat trademark eye squint.
 
 Ana pinched her own arm under the table to make sure *this* was reality.
-
-
-
-
 
 # Stereo PTSD
 
@@ -15078,10 +14786,6 @@ Jessi brought her hands to hold Ana’s cheeks, bringing Ana’s lips more solid
 
 It now felt like forever had just begun.
 
-
-
-
-
 # Caged Spark
 
 > *Man did not weave the web of life, he is merely a strand in it. Whatever he does to the web, he does to himself.*
@@ -15161,6 +14865,8 @@ Making her way down the hill, around by the still lake near the train tracks, sh
 The dark amber of the late fall sun whispered words of temporality and eternity. She smiled quietly at her reflection*.* And in that moment she saw that her eyes were now the true windows of the soul they had been born for.
 
 Ana had been right.
+
+
 
 
 
