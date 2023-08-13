@@ -4,6 +4,8 @@ Notes on how I installed this so I can remember:
     forked the tactile repo and using my repos version but still remote
 - added assets/css/style.css for any style overrides in css
 - added _includes to override favicon, etc (have not done yet)
+    added head-custom.html there which is where the favicon is set 
 - added _layouts/default.html and copied the layout from https://raw.githubusercontent.com/pages-themes/tactile/master/_layouts/default.html
     so we can override things
-    also added head-custom.html there which is where the favicon is set 
+    - modified footer text
+    - added own links
