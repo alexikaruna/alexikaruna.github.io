@@ -5,7 +5,5 @@
 layout: default
 ---
 
-[FFS Novel](https://github.com/alexikaruna/tactile)
-[My Songs](https://github.com/alexikaruna/tactile)
 
 Hello I'm Alexi
