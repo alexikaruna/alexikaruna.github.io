@@ -1,6 +1,7 @@
 Notes on how I installed this so I can remember:
 
 - remote theme used in _config.yml
+    forked the tactile repo and using my repos version but still remote
 - added assets/css/style.css for any style overrides in css
 - added _includes to override favicon, etc (have not done yet)
 - added _layouts/default.html and copied the layout from https://raw.githubusercontent.com/pages-themes/tactile/master/_layouts/default.html
