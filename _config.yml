@@ -28,7 +28,7 @@ twitter_username: alexikaruna
 github_username: alexikaruna
 
 # Build settings
-theme: tactile
+theme: minima
 remote_theme: pages-themes/tactile@v0.2.0
 plugins:
   - jekyll-feed
