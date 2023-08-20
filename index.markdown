@@ -2,19 +2,15 @@
 # Feel free to add content and custom Front Matter to this file.
 # To modify the layout, see https://jekyllrb.com/docs/themes/#overriding-theme-defaults
 
-layout: default
+layout: home
 ---
+<img src="assets/images/shrew_3b_cover_no_text_web_jpeg.jpeg" alt="shrew_image" width=400 height=400>
 
-Hello I'm Alexi
-
+### Announcing my first album!
 <img src="https://alexikaruna.com/assets/images/3_billion_heartbeats_cover_final_web.jpg" alt="3b" style="width:300px;" /> 
+Find it on any streaming service!
 
-Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua. Pretium aenean pharetra magna ac placerat vestibulum lectus. Netus et malesuada fames ac turpis egestas maecenas pharetra. Nisi porta lorem mollis aliquam ut porttitor leo a diam. Pretium lectus quam id leo in vitae turpis. Egestas dui id ornare arcu. At lectus urna duis convallis convallis tellus. Quis commodo odio aenean sed. Et malesuada fames ac turpis egestas. Feugiat in ante metus dictum at tempor commodo ullamcorper. Elit ut aliquam purus sit amet luctus venenatis lectus magna. Nunc consequat interdum varius sit amet mattis. Odio morbi quis commodo odio. Eget mi proin sed libero enim. Tortor at auctor urna nunc id cursus metus aliquam. Bibendum ut tristique et egestas quis ipsum suspendisse. Leo urna molestie at elementum eu facilisis sed. In iaculis nunc sed augue lacus viverra.
+### Other Links
+Instagram: instagram.com/shrewmuse
+           instagram.com/alexikaruna
 
-Scelerisque varius morbi enim nunc faucibus a pellentesque sit. Et ligula ullamcorper malesuada proin. Massa placerat duis ultricies lacus sed. Platea dictumst quisque sagittis purus sit amet volutpat consequat mauris. Convallis posuere morbi leo urna molestie at elementum eu facilisis. Odio pellentesque diam volutpat commodo sed egestas egestas fringilla phasellus. Non quam lacus suspendisse faucibus interdum posuere lorem ipsum. Pulvinar sapien et ligula ullamcorper malesuada proin libero. Consequat interdum varius sit amet mattis vulputate enim. Congue eu consequat ac felis donec et odio pellentesque diam. Et leo duis ut diam. Netus et malesuada fames ac turpis egestas maecenas pharetra convallis. Nisl vel pretium lectus quam id leo in.
-
-Eu consequat ac felis donec et odio pellentesque diam. Risus nec feugiat in fermentum posuere. Arcu dui vivamus arcu felis. At imperdiet dui accumsan sit amet nulla facilisi morbi. Elementum nisi quis eleifend quam adipiscing vitae. Suspendisse faucibus interdum posuere lorem ipsum dolor sit amet. Pharetra et ultrices neque ornare. Amet venenatis urna cursus eget nunc scelerisque viverra mauris. Ipsum faucibus vitae aliquet nec ullamcorper sit amet. Nec nam aliquam sem et. A erat nam at lectus. Fames ac turpis egestas sed tempus urna et pharetra. Et ligula ullamcorper malesuada proin libero nunc consequat interdum varius. Viverra accumsan in nisl nisi scelerisque.
-
-Tristique nulla aliquet enim tortor at. Quis blandit turpis cursus in hac habitasse platea dictumst quisque. Facilisi nullam vehicula ipsum a arcu cursus vitae congue. Vitae purus faucibus ornare suspendisse. Pulvinar mattis nunc sed blandit libero volutpat sed. Porta non pulvinar neque laoreet suspendisse. Ornare lectus sit amet est. Ut consequat semper viverra nam libero. Viverra accumsan in nisl nisi scelerisque eu ultrices. Odio morbi quis commodo odio aenean sed adipiscing diam donec. Justo laoreet sit amet cursus sit amet dictum. Scelerisque purus semper eget duis at tellus at urna condimentum. Quis risus sed vulputate odio ut enim. Tincidunt nunc pulvinar sapien et ligula ullamcorper. Consectetur a erat nam at lectus urna duis.
-
-Pharetra diam sit amet nisl suscipit adipiscing bibendum. Semper auctor neque vitae tempus quam pellentesque nec nam. Varius vel pharetra vel turpis. Pharetra vel turpis nunc eget lorem. Erat imperdiet sed euismod nisi. Viverra justo nec ultrices dui sapien eget mi proin sed. Vestibulum morbi blandit cursus risus at ultrices mi tempus. Libero nunc consequat interdum varius sit amet mattis. Faucibus vitae aliquet nec ullamcorper sit. Vitae semper quis lectus nulla at volutpat diam ut venenatis. Et malesuada fames ac turpis egestas integer eget aliquet nibh. Cursus in hac habitasse platea dictumst. Adipiscing elit ut aliquam purus sit amet. Sodales ut eu sem integer vitae justo. Augue neque gravida in fermentum et sollicitudin. In pellentesque massa placerat duis ultricies. Sapien eget mi proin sed libero enim sed. Hac habitasse platea dictumst quisque sagittis purus sit. Ante metus dictum at tempor commodo ullamcorper a.
