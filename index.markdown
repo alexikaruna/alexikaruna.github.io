@@ -12,7 +12,7 @@ layout: home
 
 <a href="https://alexikaruna.com/ffs_novel.pdf" target="_blank">PDF Version</a>
 
-### Announcing my Album "3 Billion Heartbeats" as ShrewMuse
+### Listn to my Album "3 Billion Heartbeats" as ShrewMuse
 
 <a href="https://open.spotify.com/album/3KyCW656PrP3kVX1kj0iGb" target="_blank">Spotify</a>
 
