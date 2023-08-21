@@ -10,15 +10,15 @@ layout: home
 
 <a href="https://alexikaruna.com/ffs_novel.html" target="_blank">Web Version</a>
 
-<a href="https://alexikaruna.com/ffs_novel/ffs_novel.pdf" target="_blank">PDF Version</a>
+<a href="https://alexikaruna.com/ffs_novel.pdf" target="_blank">PDF Version</a>
 
 ### Announcing my Album "3 Billion Heartbeats" as ShrewMuse
 
-<a href="https://open.spotify.com/artist/2QSlc66MLXlITvaoXPYGnP" target="_blank">Spotify</a>
+<a href="https://open.spotify.com/album/3KyCW656PrP3kVX1kj0iGb" target="_blank">Spotify</a>
 
-<a href="https://music.youtube.com/channel/UCvJZ8k2q5YVAr43RXyq61Kg" target="_blank">YouTube Music</a>
+<a href="https://music.youtube.com/playlist?list=OLAK5uy_lH2xdAJ5dl7gS_0y3-z0khINWpvc0XLQA" target="_blank">YouTube Music</a>
 
-<a href="https://music.apple.com/us/artist/shrewmuse/1695769676" target="_blank">Apple Music</a>
+<a href="https://music.apple.com/us/album/3-billion-heartbeats/1695804057" target="_blank">Apple Music</a>
 
 (and others!)
 
