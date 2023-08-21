@@ -4,7 +4,7 @@
 
 layout: home
 ---
-<img src="https://alexikaruna.com/assets/images/3_billion_heartbeats_cover_final_web.jpg" alt="3b" style="width:300px;" /> 
+<img src="https://alexikaruna.com/assets/images/shrew_3b_cover_no_text_web_jpeg.jpeg" alt="3b" style="width:300px;" /> 
 
 ### Read (or download) my Novel "FFS"!
 [Web Version](https://alexikaruna.com/ffs_novel/ffs_novel.html)
