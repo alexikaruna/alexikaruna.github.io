@@ -6,14 +6,13 @@ layout: home
 ---
 <img src="https://alexikaruna.com/assets/images/shrew_3b_cover_no_text_web_jpeg.jpeg" alt="3b" style="width:600px;" /> 
 
-### Read (or download) my Novel "FFS"!
+### Read (or download) my Novel "FFS"
 
 <a href="https://alexikaruna.com/ffs_novel.html" target="_blank">Web Version</a>
 
 <a href="https://alexikaruna.com/ffs_novel/ffs_novel.pdf" target="_blank">PDF Version</a>
 
-### Announcing my Album "3 Billion Heartbeats"!
-<img src="https://alexikaruna.com/assets/images/3_billion_heartbeats_cover_final_web.jpg" alt="3b" style="width:150px;" />  
+### Announcing my Album "3 Billion Heartbeats"
 
 <a href="https://open.spotify.com/artist/2QSlc66MLXlITvaoXPYGnP" target="_blank">Spotify</a>
 
