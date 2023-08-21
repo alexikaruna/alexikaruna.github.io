@@ -6,9 +6,9 @@ layout: home
 ---
 
 ### Read my Novel "FFS"!
-[Web Version](https://alexikaruna.com/ffs_novel.html)
+[Web Version](https://alexikaruna.com/ffs_novel/ffs_novel.html)
 
-[PDF Version](https://alexikaruna.com/ffs_novel.pdf)
+[PDF Version](https://alexikaruna.com/ffs_novel/ffs_novel.pdf)
 
 ### Announcing my first album "3 Billion Heartbeats"!
 <img src="https://alexikaruna.com/assets/images/3_billion_heartbeats_cover_final_web.jpg" alt="3b" style="width:300px;" /> 
